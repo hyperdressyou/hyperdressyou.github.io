@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$450.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/88678-shop-joielle-betts.html"><img src="//static.msromantic.com/231210/shop-joielle-betts.jpg" alt="Shop Joielle Betts" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/88678-shop-joielle-betts.html"><img src="//static.msromantic.com/231210/shop-joielle-betts.jpg" alt="Shop Joielle Betts" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/88678-shop-joielle-betts.html"><img src="//static.msromantic.com/231209/shop-joielle-betts.jpg" alt="Shop Joielle Betts" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/88678-shop-joielle-betts.html](https://www.readybrides.com/en/shop-joielle-women/88678-shop-joielle-betts.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/88678-shop-joielle-betts.html"><img src="//static.msromantic.com/231209/shop-joielle-betts.jpg" alt="Shop Joielle Betts" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/88678-shop-joielle-betts.html](https://www.antebrands.com/en/shop-joielle-women/88678-shop-joielle-betts.html)

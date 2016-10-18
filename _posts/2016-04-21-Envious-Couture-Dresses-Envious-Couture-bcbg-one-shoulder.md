@@ -9,7 +9,7 @@ tags: [Envious Couture Dresses]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/envious-couture-dresses/86752-envious-couture-bcbg-one-shoulder.html"><img src="//static.msromantic.com/225878/envious-couture-bcbg-one-shoulder.jpg" alt="Envious Couture bcbg one shoulder" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/envious-couture-dresses/86752-envious-couture-bcbg-one-shoulder.html"><img src="//static.msromantic.com/225878/envious-couture-bcbg-one-shoulder.jpg" alt="Envious Couture bcbg one shoulder" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/envious-couture-dresses/86752-envious-couture-bcbg-one-shoulder.html](https://www.readybrides.com/en/envious-couture-dresses/86752-envious-couture-bcbg-one-shoulder.html)
+Buy it: [https://www.antebrands.com/en/envious-couture-dresses/86752-envious-couture-bcbg-one-shoulder.html](https://www.antebrands.com/en/envious-couture-dresses/86752-envious-couture-bcbg-one-shoulder.html)

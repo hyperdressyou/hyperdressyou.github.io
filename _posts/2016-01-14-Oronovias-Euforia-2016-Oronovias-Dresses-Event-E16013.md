@@ -9,7 +9,7 @@ tags: [Oronovias Euforia 2016]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/oronovias-euforia-2016/85253-oronovias-dresses-event-e16013.html"><img src="//static.msromantic.com/223341/oronovias-dresses-event-e16013.jpg" alt="Oronovias Dresses Event E16013" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/oronovias-euforia-2016/85253-oronovias-dresses-event-e16013.html"><img src="//static.msromantic.com/223341/oronovias-dresses-event-e16013.jpg" alt="Oronovias Dresses Event E16013" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/oronovias-euforia-2016/85253-oronovias-dresses-event-e16013.html"><img src="//static.msromantic.com/223340/oronovias-dresses-event-e16013.jpg" alt="Oronovias Dresses Event E16013" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/oronovias-euforia-2016/85253-oronovias-dresses-event-e16013.html](https://www.readybrides.com/en/oronovias-euforia-2016/85253-oronovias-dresses-event-e16013.html)
+<!-- break --><a href="https://www.antebrands.com/en/oronovias-euforia-2016/85253-oronovias-dresses-event-e16013.html"><img src="//static.msromantic.com/223340/oronovias-dresses-event-e16013.jpg" alt="Oronovias Dresses Event E16013" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/oronovias-euforia-2016/85253-oronovias-dresses-event-e16013.html](https://www.antebrands.com/en/oronovias-euforia-2016/85253-oronovias-dresses-event-e16013.html)

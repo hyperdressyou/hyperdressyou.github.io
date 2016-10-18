@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$699.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/84023-yumi-katsura-couture-milan.html"><img src="//static.msromantic.com/215729/yumi-katsura-couture-milan.jpg" alt="Yumi Katsura Couture Milan" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/84023-yumi-katsura-couture-milan.html"><img src="//static.msromantic.com/215729/yumi-katsura-couture-milan.jpg" alt="Yumi Katsura Couture Milan" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/84023-yumi-katsura-couture-milan.html](https://www.readybrides.com/en/yumi-katsura-couture/84023-yumi-katsura-couture-milan.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/84023-yumi-katsura-couture-milan.html](https://www.antebrands.com/en/yumi-katsura-couture/84023-yumi-katsura-couture-milan.html)

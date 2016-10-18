@@ -9,7 +9,7 @@ tags: [Anna Elyse Whats New]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/anna-elyse-whats-new/86807-anna-elyse-brittany.html"><img src="//static.msromantic.com/225933/anna-elyse-brittany.jpg" alt="Anna Elyse Brittany" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/anna-elyse-whats-new/86807-anna-elyse-brittany.html"><img src="//static.msromantic.com/225933/anna-elyse-brittany.jpg" alt="Anna Elyse Brittany" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/anna-elyse-whats-new/86807-anna-elyse-brittany.html](https://www.readybrides.com/en/anna-elyse-whats-new/86807-anna-elyse-brittany.html)
+Buy it: [https://www.antebrands.com/en/anna-elyse-whats-new/86807-anna-elyse-brittany.html](https://www.antebrands.com/en/anna-elyse-whats-new/86807-anna-elyse-brittany.html)

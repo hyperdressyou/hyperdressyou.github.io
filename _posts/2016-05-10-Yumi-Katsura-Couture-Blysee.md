@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83969-yumi-katsura-couture-blysee.html"><img src="//static.msromantic.com/215668/yumi-katsura-couture-blysee.jpg" alt="Yumi Katsura Couture Blysee" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83969-yumi-katsura-couture-blysee.html"><img src="//static.msromantic.com/215668/yumi-katsura-couture-blysee.jpg" alt="Yumi Katsura Couture Blysee" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83969-yumi-katsura-couture-blysee.html](https://www.readybrides.com/en/yumi-katsura-couture/83969-yumi-katsura-couture-blysee.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83969-yumi-katsura-couture-blysee.html](https://www.antebrands.com/en/yumi-katsura-couture/83969-yumi-katsura-couture-blysee.html)

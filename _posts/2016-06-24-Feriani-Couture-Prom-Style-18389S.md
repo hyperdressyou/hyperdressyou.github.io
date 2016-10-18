@@ -9,7 +9,7 @@ tags: [Feriani Couture Prom]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/feriani-couture-prom/87283-feriani-couture-prom-style-18389s.html"><img src="//static.msromantic.com/226894/feriani-couture-prom-style-18389s.jpg" alt="Feriani Couture Prom Style 18389S" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/feriani-couture-prom/87283-feriani-couture-prom-style-18389s.html"><img src="//static.msromantic.com/226894/feriani-couture-prom-style-18389s.jpg" alt="Feriani Couture Prom Style 18389S" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/feriani-couture-prom/87283-feriani-couture-prom-style-18389s.html](https://www.readybrides.com/en/feriani-couture-prom/87283-feriani-couture-prom-style-18389s.html)
+Buy it: [https://www.antebrands.com/en/feriani-couture-prom/87283-feriani-couture-prom-style-18389s.html](https://www.antebrands.com/en/feriani-couture-prom/87283-feriani-couture-prom-style-18389s.html)

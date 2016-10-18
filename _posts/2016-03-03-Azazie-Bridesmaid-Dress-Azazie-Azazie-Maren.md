@@ -9,8 +9,8 @@ tags: [Azazie Bridesmaid Dress]
 Just **$159.99**
 ### 
 
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88104-azazie-azazie-maren.html"><img src="//static.msromantic.com/229407/azazie-azazie-maren.jpg" alt="Azazie Azazie Maren" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88104-azazie-azazie-maren.html"><img src="//static.msromantic.com/229407/azazie-azazie-maren.jpg" alt="Azazie Azazie Maren" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88104-azazie-azazie-maren.html"><img src="//static.msromantic.com/229408/azazie-azazie-maren.jpg" alt="Azazie Azazie Maren" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88104-azazie-azazie-maren.html"><img src="//static.msromantic.com/229406/azazie-azazie-maren.jpg" alt="Azazie Azazie Maren" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/azazie-bridesmaid-dress/88104-azazie-azazie-maren.html](https://www.readybrides.com/en/azazie-bridesmaid-dress/88104-azazie-azazie-maren.html)
+<!-- break --><a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88104-azazie-azazie-maren.html"><img src="//static.msromantic.com/229408/azazie-azazie-maren.jpg" alt="Azazie Azazie Maren" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88104-azazie-azazie-maren.html"><img src="//static.msromantic.com/229406/azazie-azazie-maren.jpg" alt="Azazie Azazie Maren" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/azazie-bridesmaid-dress/88104-azazie-azazie-maren.html](https://www.antebrands.com/en/azazie-bridesmaid-dress/88104-azazie-azazie-maren.html)

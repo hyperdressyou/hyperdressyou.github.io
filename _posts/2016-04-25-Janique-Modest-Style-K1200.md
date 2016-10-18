@@ -9,8 +9,8 @@ tags: [Janique Modest]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/janique-modest/88624-janique-modest-style-k1200.html"><img src="//static.msromantic.com/231049/janique-modest-style-k1200.jpg" alt="Janique Modest Style K1200" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/janique-modest/88624-janique-modest-style-k1200.html"><img src="//static.msromantic.com/231049/janique-modest-style-k1200.jpg" alt="Janique Modest Style K1200" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/janique-modest/88624-janique-modest-style-k1200.html"><img src="//static.msromantic.com/231050/janique-modest-style-k1200.jpg" alt="Janique Modest Style K1200" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/janique-modest/88624-janique-modest-style-k1200.html"><img src="//static.msromantic.com/231048/janique-modest-style-k1200.jpg" alt="Janique Modest Style K1200" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/janique-modest/88624-janique-modest-style-k1200.html](https://www.readybrides.com/en/janique-modest/88624-janique-modest-style-k1200.html)
+<!-- break --><a href="https://www.antebrands.com/en/janique-modest/88624-janique-modest-style-k1200.html"><img src="//static.msromantic.com/231050/janique-modest-style-k1200.jpg" alt="Janique Modest Style K1200" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/janique-modest/88624-janique-modest-style-k1200.html"><img src="//static.msromantic.com/231048/janique-modest-style-k1200.jpg" alt="Janique Modest Style K1200" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/janique-modest/88624-janique-modest-style-k1200.html](https://www.antebrands.com/en/janique-modest/88624-janique-modest-style-k1200.html)

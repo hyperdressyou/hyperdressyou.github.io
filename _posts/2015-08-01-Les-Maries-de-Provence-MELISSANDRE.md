@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85087-les-mariees-de-provence-melissandre.html"><img src="//static.msromantic.com/223015/les-mariees-de-provence-melissandre.jpg" alt="Les Mariées de Provence MELISSANDRE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85087-les-mariees-de-provence-melissandre.html"><img src="//static.msromantic.com/223015/les-mariees-de-provence-melissandre.jpg" alt="Les Mariées de Provence MELISSANDRE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85087-les-mariees-de-provence-melissandre.html](https://www.readybrides.com/en/les-mariees-de-provence/85087-les-mariees-de-provence-melissandre.html)
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85087-les-mariees-de-provence-melissandre.html](https://www.antebrands.com/en/les-mariees-de-provence/85087-les-mariees-de-provence-melissandre.html)

@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$180.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89321-shop-joielle-long-twist-wrap-dress.html"><img src="//static.msromantic.com/232510/shop-joielle-long-twist-wrap-dress.jpg" alt="Shop Joielle Long Twist Wrap Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89321-shop-joielle-long-twist-wrap-dress.html"><img src="//static.msromantic.com/232510/shop-joielle-long-twist-wrap-dress.jpg" alt="Shop Joielle Long Twist Wrap Dress" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/89321-shop-joielle-long-twist-wrap-dress.html"><img src="//static.msromantic.com/232509/shop-joielle-long-twist-wrap-dress.jpg" alt="Shop Joielle Long Twist Wrap Dress" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89321-shop-joielle-long-twist-wrap-dress.html](https://www.readybrides.com/en/shop-joielle-women/89321-shop-joielle-long-twist-wrap-dress.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/89321-shop-joielle-long-twist-wrap-dress.html"><img src="//static.msromantic.com/232509/shop-joielle-long-twist-wrap-dress.jpg" alt="Shop Joielle Long Twist Wrap Dress" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89321-shop-joielle-long-twist-wrap-dress.html](https://www.antebrands.com/en/shop-joielle-women/89321-shop-joielle-long-twist-wrap-dress.html)

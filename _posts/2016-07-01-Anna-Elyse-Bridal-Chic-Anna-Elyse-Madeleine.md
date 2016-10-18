@@ -9,7 +9,7 @@ tags: [Anna Elyse Bridal Chic]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/anna-elyse-bridal-chic/86823-anna-elyse-madeleine.html"><img src="//static.msromantic.com/225949/anna-elyse-madeleine.jpg" alt="Anna Elyse Madeleine" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/anna-elyse-bridal-chic/86823-anna-elyse-madeleine.html"><img src="//static.msromantic.com/225949/anna-elyse-madeleine.jpg" alt="Anna Elyse Madeleine" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/anna-elyse-bridal-chic/86823-anna-elyse-madeleine.html](https://www.readybrides.com/en/anna-elyse-bridal-chic/86823-anna-elyse-madeleine.html)
+Buy it: [https://www.antebrands.com/en/anna-elyse-bridal-chic/86823-anna-elyse-madeleine.html](https://www.antebrands.com/en/anna-elyse-bridal-chic/86823-anna-elyse-madeleine.html)

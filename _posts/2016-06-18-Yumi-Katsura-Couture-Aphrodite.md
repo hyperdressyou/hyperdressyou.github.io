@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$409.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/84008-yumi-katsura-couture-aphrodite.html"><img src="//static.msromantic.com/215708/yumi-katsura-couture-aphrodite.jpg" alt="Yumi Katsura Couture Aphrodite" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/84008-yumi-katsura-couture-aphrodite.html"><img src="//static.msromantic.com/215708/yumi-katsura-couture-aphrodite.jpg" alt="Yumi Katsura Couture Aphrodite" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/yumi-katsura-couture/84008-yumi-katsura-couture-aphrodite.html"><img src="//static.msromantic.com/215707/yumi-katsura-couture-aphrodite.jpg" alt="Yumi Katsura Couture Aphrodite" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/84008-yumi-katsura-couture-aphrodite.html](https://www.readybrides.com/en/yumi-katsura-couture/84008-yumi-katsura-couture-aphrodite.html)
+<!-- break --><a href="https://www.antebrands.com/en/yumi-katsura-couture/84008-yumi-katsura-couture-aphrodite.html"><img src="//static.msromantic.com/215707/yumi-katsura-couture-aphrodite.jpg" alt="Yumi Katsura Couture Aphrodite" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/84008-yumi-katsura-couture-aphrodite.html](https://www.antebrands.com/en/yumi-katsura-couture/84008-yumi-katsura-couture-aphrodite.html)

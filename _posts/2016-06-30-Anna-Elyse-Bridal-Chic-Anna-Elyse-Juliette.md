@@ -9,7 +9,7 @@ tags: [Anna Elyse Bridal Chic]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/anna-elyse-bridal-chic/86822-anna-elyse-juliette.html"><img src="//static.msromantic.com/225948/anna-elyse-juliette.jpg" alt="Anna Elyse Juliette" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/anna-elyse-bridal-chic/86822-anna-elyse-juliette.html"><img src="//static.msromantic.com/225948/anna-elyse-juliette.jpg" alt="Anna Elyse Juliette" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/anna-elyse-bridal-chic/86822-anna-elyse-juliette.html](https://www.readybrides.com/en/anna-elyse-bridal-chic/86822-anna-elyse-juliette.html)
+Buy it: [https://www.antebrands.com/en/anna-elyse-bridal-chic/86822-anna-elyse-juliette.html](https://www.antebrands.com/en/anna-elyse-bridal-chic/86822-anna-elyse-juliette.html)

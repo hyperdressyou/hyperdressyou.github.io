@@ -9,7 +9,7 @@ tags: [Celia Grace Dresses]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/celia-grace-dresses/83944-celia-grace-more-information-pricing.html"><img src="//static.msromantic.com/215631/celia-grace-more-information-pricing.jpg" alt="Celia Grace More Information & Pricing" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/celia-grace-dresses/83944-celia-grace-more-information-pricing.html"><img src="//static.msromantic.com/215631/celia-grace-more-information-pricing.jpg" alt="Celia Grace More Information & Pricing" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/celia-grace-dresses/83944-celia-grace-more-information-pricing.html](https://www.readybrides.com/en/celia-grace-dresses/83944-celia-grace-more-information-pricing.html)
+Buy it: [https://www.antebrands.com/en/celia-grace-dresses/83944-celia-grace-more-information-pricing.html](https://www.antebrands.com/en/celia-grace-dresses/83944-celia-grace-more-information-pricing.html)

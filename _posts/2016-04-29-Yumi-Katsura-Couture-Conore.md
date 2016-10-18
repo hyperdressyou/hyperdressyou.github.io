@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$429.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83958-yumi-katsura-couture-conore.html"><img src="//static.msromantic.com/215654/yumi-katsura-couture-conore.jpg" alt="Yumi Katsura Couture Conore" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83958-yumi-katsura-couture-conore.html"><img src="//static.msromantic.com/215654/yumi-katsura-couture-conore.jpg" alt="Yumi Katsura Couture Conore" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/yumi-katsura-couture/83958-yumi-katsura-couture-conore.html"><img src="//static.msromantic.com/215653/yumi-katsura-couture-conore.jpg" alt="Yumi Katsura Couture Conore" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83958-yumi-katsura-couture-conore.html](https://www.readybrides.com/en/yumi-katsura-couture/83958-yumi-katsura-couture-conore.html)
+<!-- break --><a href="https://www.antebrands.com/en/yumi-katsura-couture/83958-yumi-katsura-couture-conore.html"><img src="//static.msromantic.com/215653/yumi-katsura-couture-conore.jpg" alt="Yumi Katsura Couture Conore" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83958-yumi-katsura-couture-conore.html](https://www.antebrands.com/en/yumi-katsura-couture/83958-yumi-katsura-couture-conore.html)

@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$239.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85056-les-mariees-de-provence-eglantine.html"><img src="//static.msromantic.com/222957/les-mariees-de-provence-eglantine.jpg" alt="Les Mariées de Provence EGLANTINE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85056-les-mariees-de-provence-eglantine.html"><img src="//static.msromantic.com/222957/les-mariees-de-provence-eglantine.jpg" alt="Les Mariées de Provence EGLANTINE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85056-les-mariees-de-provence-eglantine.html](https://www.readybrides.com/en/les-mariees-de-provence/85056-les-mariees-de-provence-eglantine.html)
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85056-les-mariees-de-provence-eglantine.html](https://www.antebrands.com/en/les-mariees-de-provence/85056-les-mariees-de-provence-eglantine.html)

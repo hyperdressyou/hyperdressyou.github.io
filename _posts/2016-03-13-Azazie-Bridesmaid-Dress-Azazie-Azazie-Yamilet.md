@@ -9,8 +9,8 @@ tags: [Azazie Bridesmaid Dress]
 Just **$159.99**
 ### 
 
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88114-azazie-azazie-yamilet.html"><img src="//static.msromantic.com/229440/azazie-azazie-yamilet.jpg" alt="Azazie Azazie Yamilet" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88114-azazie-azazie-yamilet.html"><img src="//static.msromantic.com/229440/azazie-azazie-yamilet.jpg" alt="Azazie Azazie Yamilet" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88114-azazie-azazie-yamilet.html"><img src="//static.msromantic.com/229441/azazie-azazie-yamilet.jpg" alt="Azazie Azazie Yamilet" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88114-azazie-azazie-yamilet.html"><img src="//static.msromantic.com/229439/azazie-azazie-yamilet.jpg" alt="Azazie Azazie Yamilet" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/azazie-bridesmaid-dress/88114-azazie-azazie-yamilet.html](https://www.readybrides.com/en/azazie-bridesmaid-dress/88114-azazie-azazie-yamilet.html)
+<!-- break --><a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88114-azazie-azazie-yamilet.html"><img src="//static.msromantic.com/229441/azazie-azazie-yamilet.jpg" alt="Azazie Azazie Yamilet" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88114-azazie-azazie-yamilet.html"><img src="//static.msromantic.com/229439/azazie-azazie-yamilet.jpg" alt="Azazie Azazie Yamilet" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/azazie-bridesmaid-dress/88114-azazie-azazie-yamilet.html](https://www.antebrands.com/en/azazie-bridesmaid-dress/88114-azazie-azazie-yamilet.html)

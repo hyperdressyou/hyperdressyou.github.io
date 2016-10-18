@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$248.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89241-shop-joielle-violet.html"><img src="//static.msromantic.com/232348/shop-joielle-violet.jpg" alt="Shop Joielle Violet" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89241-shop-joielle-violet.html"><img src="//static.msromantic.com/232348/shop-joielle-violet.jpg" alt="Shop Joielle Violet" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/89241-shop-joielle-violet.html"><img src="//static.msromantic.com/232347/shop-joielle-violet.jpg" alt="Shop Joielle Violet" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89241-shop-joielle-violet.html](https://www.readybrides.com/en/shop-joielle-women/89241-shop-joielle-violet.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/89241-shop-joielle-violet.html"><img src="//static.msromantic.com/232347/shop-joielle-violet.jpg" alt="Shop Joielle Violet" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89241-shop-joielle-violet.html](https://www.antebrands.com/en/shop-joielle-women/89241-shop-joielle-violet.html)

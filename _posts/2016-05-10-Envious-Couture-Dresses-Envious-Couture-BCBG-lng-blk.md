@@ -9,7 +9,7 @@ tags: [Envious Couture Dresses]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/envious-couture-dresses/86771-envious-couture-bcbg-lng-blk.html"><img src="//static.msromantic.com/225897/envious-couture-bcbg-lng-blk.jpg" alt="Envious Couture BCBG lng blk" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/envious-couture-dresses/86771-envious-couture-bcbg-lng-blk.html"><img src="//static.msromantic.com/225897/envious-couture-bcbg-lng-blk.jpg" alt="Envious Couture BCBG lng blk" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/envious-couture-dresses/86771-envious-couture-bcbg-lng-blk.html](https://www.readybrides.com/en/envious-couture-dresses/86771-envious-couture-bcbg-lng-blk.html)
+Buy it: [https://www.antebrands.com/en/envious-couture-dresses/86771-envious-couture-bcbg-lng-blk.html](https://www.antebrands.com/en/envious-couture-dresses/86771-envious-couture-bcbg-lng-blk.html)

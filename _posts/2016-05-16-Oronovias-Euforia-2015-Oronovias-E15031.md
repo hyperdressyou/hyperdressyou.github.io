@@ -9,7 +9,7 @@ tags: [Oronovias Euforia 2015]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/oronovias-euforia-2015/85376-oronovias-e15031.html"><img src="//static.msromantic.com/223583/oronovias-e15031.jpg" alt="Oronovias E15031" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/oronovias-euforia-2015/85376-oronovias-e15031.html"><img src="//static.msromantic.com/223583/oronovias-e15031.jpg" alt="Oronovias E15031" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/oronovias-euforia-2015/85376-oronovias-e15031.html"><img src="//static.msromantic.com/223582/oronovias-e15031.jpg" alt="Oronovias E15031" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/oronovias-euforia-2015/85376-oronovias-e15031.html](https://www.readybrides.com/en/oronovias-euforia-2015/85376-oronovias-e15031.html)
+<!-- break --><a href="https://www.antebrands.com/en/oronovias-euforia-2015/85376-oronovias-e15031.html"><img src="//static.msromantic.com/223582/oronovias-e15031.jpg" alt="Oronovias E15031" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/oronovias-euforia-2015/85376-oronovias-e15031.html](https://www.antebrands.com/en/oronovias-euforia-2015/85376-oronovias-e15031.html)

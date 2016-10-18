@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$276.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/88680-shop-joielle-andi.html"><img src="//static.msromantic.com/231214/shop-joielle-andi.jpg" alt="Shop Joielle Andi" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/88680-shop-joielle-andi.html"><img src="//static.msromantic.com/231214/shop-joielle-andi.jpg" alt="Shop Joielle Andi" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/88680-shop-joielle-andi.html"><img src="//static.msromantic.com/231213/shop-joielle-andi.jpg" alt="Shop Joielle Andi" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/88680-shop-joielle-andi.html](https://www.readybrides.com/en/shop-joielle-women/88680-shop-joielle-andi.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/88680-shop-joielle-andi.html"><img src="//static.msromantic.com/231213/shop-joielle-andi.jpg" alt="Shop Joielle Andi" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/88680-shop-joielle-andi.html](https://www.antebrands.com/en/shop-joielle-women/88680-shop-joielle-andi.html)

@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$118.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89080-shop-joielle-satin-a-line-dress-with-sash.html"><img src="//static.msromantic.com/232031/shop-joielle-satin-a-line-dress-with-sash.jpg" alt="Shop Joielle Satin A-line Dress with Sash" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89080-shop-joielle-satin-a-line-dress-with-sash.html"><img src="//static.msromantic.com/232031/shop-joielle-satin-a-line-dress-with-sash.jpg" alt="Shop Joielle Satin A-line Dress with Sash" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/89080-shop-joielle-satin-a-line-dress-with-sash.html"><img src="//static.msromantic.com/232030/shop-joielle-satin-a-line-dress-with-sash.jpg" alt="Shop Joielle Satin A-line Dress with Sash" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89080-shop-joielle-satin-a-line-dress-with-sash.html](https://www.readybrides.com/en/shop-joielle-women/89080-shop-joielle-satin-a-line-dress-with-sash.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/89080-shop-joielle-satin-a-line-dress-with-sash.html"><img src="//static.msromantic.com/232030/shop-joielle-satin-a-line-dress-with-sash.jpg" alt="Shop Joielle Satin A-line Dress with Sash" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89080-shop-joielle-satin-a-line-dress-with-sash.html](https://www.antebrands.com/en/shop-joielle-women/89080-shop-joielle-satin-a-line-dress-with-sash.html)

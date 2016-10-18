@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85116-les-mariees-de-provence-sidonie.html"><img src="//static.msromantic.com/223069/les-mariees-de-provence-sidonie.jpg" alt="Les Mariées de Provence SIDONIE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85116-les-mariees-de-provence-sidonie.html"><img src="//static.msromantic.com/223069/les-mariees-de-provence-sidonie.jpg" alt="Les Mariées de Provence SIDONIE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85116-les-mariees-de-provence-sidonie.html](https://www.readybrides.com/en/les-mariees-de-provence/85116-les-mariees-de-provence-sidonie.html)
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85116-les-mariees-de-provence-sidonie.html](https://www.antebrands.com/en/les-mariees-de-provence/85116-les-mariees-de-provence-sidonie.html)

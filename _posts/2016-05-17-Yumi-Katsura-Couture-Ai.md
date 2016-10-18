@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$419.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83976-yumi-katsura-couture-ai.html"><img src="//static.msromantic.com/215675/yumi-katsura-couture-ai.jpg" alt="Yumi Katsura Couture Ai" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83976-yumi-katsura-couture-ai.html"><img src="//static.msromantic.com/215675/yumi-katsura-couture-ai.jpg" alt="Yumi Katsura Couture Ai" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83976-yumi-katsura-couture-ai.html](https://www.readybrides.com/en/yumi-katsura-couture/83976-yumi-katsura-couture-ai.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83976-yumi-katsura-couture-ai.html](https://www.antebrands.com/en/yumi-katsura-couture/83976-yumi-katsura-couture-ai.html)

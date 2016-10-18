@@ -9,7 +9,7 @@ tags: [Antonios Couture SS 2005]
 Just **$629.99**
 ### 
 
-<a href="https://www.readybrides.com/en/antonios-couture-ss-2005/86312-antonios-couture-ss-2005-style-44.html"><img src="//static.msromantic.com/225053/antonios-couture-ss-2005-style-44.jpg" alt="Antonios Couture SS 2005 Style 44" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/antonios-couture-ss-2005/86312-antonios-couture-ss-2005-style-44.html"><img src="//static.msromantic.com/225053/antonios-couture-ss-2005-style-44.jpg" alt="Antonios Couture SS 2005 Style 44" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/antonios-couture-ss-2005/86312-antonios-couture-ss-2005-style-44.html](https://www.readybrides.com/en/antonios-couture-ss-2005/86312-antonios-couture-ss-2005-style-44.html)
+Buy it: [https://www.antebrands.com/en/antonios-couture-ss-2005/86312-antonios-couture-ss-2005-style-44.html](https://www.antebrands.com/en/antonios-couture-ss-2005/86312-antonios-couture-ss-2005-style-44.html)

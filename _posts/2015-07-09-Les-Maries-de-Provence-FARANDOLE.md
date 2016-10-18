@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85064-les-mariees-de-provence-farandole.html"><img src="//static.msromantic.com/222972/les-mariees-de-provence-farandole.jpg" alt="Les Mariées de Provence FARANDOLE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85064-les-mariees-de-provence-farandole.html"><img src="//static.msromantic.com/222972/les-mariees-de-provence-farandole.jpg" alt="Les Mariées de Provence FARANDOLE" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/les-mariees-de-provence/85064-les-mariees-de-provence-farandole.html"><img src="//static.msromantic.com/222971/les-mariees-de-provence-farandole.jpg" alt="Les Mariées de Provence FARANDOLE" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85064-les-mariees-de-provence-farandole.html](https://www.readybrides.com/en/les-mariees-de-provence/85064-les-mariees-de-provence-farandole.html)
+<!-- break --><a href="https://www.antebrands.com/en/les-mariees-de-provence/85064-les-mariees-de-provence-farandole.html"><img src="//static.msromantic.com/222971/les-mariees-de-provence-farandole.jpg" alt="Les Mariées de Provence FARANDOLE" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85064-les-mariees-de-provence-farandole.html](https://www.antebrands.com/en/les-mariees-de-provence/85064-les-mariees-de-provence-farandole.html)

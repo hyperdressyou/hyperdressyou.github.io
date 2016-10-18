@@ -9,7 +9,7 @@ tags: [kitty & dulcie Kitty & Dulcie Brides]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87945-kitty-dulcie-amanda-london.html"><img src="//static.msromantic.com/228970/kitty-dulcie-amanda-london.jpg" alt="kitty & dulcie Amanda (London)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87945-kitty-dulcie-amanda-london.html"><img src="//static.msromantic.com/228970/kitty-dulcie-amanda-london.jpg" alt="kitty & dulcie Amanda (London)" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87945-kitty-dulcie-amanda-london.html](https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87945-kitty-dulcie-amanda-london.html)
+Buy it: [https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87945-kitty-dulcie-amanda-london.html](https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87945-kitty-dulcie-amanda-london.html)

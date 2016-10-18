@@ -9,7 +9,7 @@ tags: [Envious Couture Comingsoon]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/envious-couture-comingsoon/86791-envious-couture-jessica-simpson.html"><img src="//static.msromantic.com/225917/envious-couture-jessica-simpson.jpg" alt="Envious Couture Jessica Simpson" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/envious-couture-comingsoon/86791-envious-couture-jessica-simpson.html"><img src="//static.msromantic.com/225917/envious-couture-jessica-simpson.jpg" alt="Envious Couture Jessica Simpson" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/envious-couture-comingsoon/86791-envious-couture-jessica-simpson.html](https://www.readybrides.com/en/envious-couture-comingsoon/86791-envious-couture-jessica-simpson.html)
+Buy it: [https://www.antebrands.com/en/envious-couture-comingsoon/86791-envious-couture-jessica-simpson.html](https://www.antebrands.com/en/envious-couture-comingsoon/86791-envious-couture-jessica-simpson.html)

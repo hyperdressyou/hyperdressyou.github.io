@@ -9,8 +9,8 @@ tags: [Cortana SS 14]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/cortana-ss-14/84197-cortana-alado.html"><img src="//static.msromantic.com/216556/cortana-alado.jpg" alt="Cortana Alado" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cortana-ss-14/84197-cortana-alado.html"><img src="//static.msromantic.com/216556/cortana-alado.jpg" alt="Cortana Alado" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/cortana-ss-14/84197-cortana-alado.html"><img src="//static.msromantic.com/216557/cortana-alado.jpg" alt="Cortana Alado" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/cortana-ss-14/84197-cortana-alado.html"><img src="//static.msromantic.com/216555/cortana-alado.jpg" alt="Cortana Alado" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/cortana-ss-14/84197-cortana-alado.html](https://www.readybrides.com/en/cortana-ss-14/84197-cortana-alado.html)
+<!-- break --><a href="https://www.antebrands.com/en/cortana-ss-14/84197-cortana-alado.html"><img src="//static.msromantic.com/216557/cortana-alado.jpg" alt="Cortana Alado" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cortana-ss-14/84197-cortana-alado.html"><img src="//static.msromantic.com/216555/cortana-alado.jpg" alt="Cortana Alado" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/cortana-ss-14/84197-cortana-alado.html](https://www.antebrands.com/en/cortana-ss-14/84197-cortana-alado.html)

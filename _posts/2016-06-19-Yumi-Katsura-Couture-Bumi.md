@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$409.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/84009-yumi-katsura-couture-bumi.html"><img src="//static.msromantic.com/215709/yumi-katsura-couture-bumi.jpg" alt="Yumi Katsura Couture Bumi" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/84009-yumi-katsura-couture-bumi.html"><img src="//static.msromantic.com/215709/yumi-katsura-couture-bumi.jpg" alt="Yumi Katsura Couture Bumi" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/84009-yumi-katsura-couture-bumi.html](https://www.readybrides.com/en/yumi-katsura-couture/84009-yumi-katsura-couture-bumi.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/84009-yumi-katsura-couture-bumi.html](https://www.antebrands.com/en/yumi-katsura-couture/84009-yumi-katsura-couture-bumi.html)

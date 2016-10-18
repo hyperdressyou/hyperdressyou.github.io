@@ -9,8 +9,8 @@ tags: [Azazie Bridesmaid Dress]
 Just **$159.99**
 ### 
 
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88173-azazie-azazie-abbey.html"><img src="//static.msromantic.com/229633/azazie-azazie-abbey.jpg" alt="Azazie Azazie Abbey" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88173-azazie-azazie-abbey.html"><img src="//static.msromantic.com/229633/azazie-azazie-abbey.jpg" alt="Azazie Azazie Abbey" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88173-azazie-azazie-abbey.html"><img src="//static.msromantic.com/229634/azazie-azazie-abbey.jpg" alt="Azazie Azazie Abbey" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88173-azazie-azazie-abbey.html"><img src="//static.msromantic.com/229632/azazie-azazie-abbey.jpg" alt="Azazie Azazie Abbey" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/azazie-bridesmaid-dress/88173-azazie-azazie-abbey.html](https://www.readybrides.com/en/azazie-bridesmaid-dress/88173-azazie-azazie-abbey.html)
+<!-- break --><a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88173-azazie-azazie-abbey.html"><img src="//static.msromantic.com/229634/azazie-azazie-abbey.jpg" alt="Azazie Azazie Abbey" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88173-azazie-azazie-abbey.html"><img src="//static.msromantic.com/229632/azazie-azazie-abbey.jpg" alt="Azazie Azazie Abbey" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/azazie-bridesmaid-dress/88173-azazie-azazie-abbey.html](https://www.antebrands.com/en/azazie-bridesmaid-dress/88173-azazie-azazie-abbey.html)

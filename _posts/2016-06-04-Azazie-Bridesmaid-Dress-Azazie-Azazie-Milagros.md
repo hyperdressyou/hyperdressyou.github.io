@@ -9,8 +9,8 @@ tags: [Azazie Bridesmaid Dress]
 Just **$169.99**
 ### 
 
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88197-azazie-azazie-milagros.html"><img src="//static.msromantic.com/229707/azazie-azazie-milagros.jpg" alt="Azazie Azazie Milagros" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88197-azazie-azazie-milagros.html"><img src="//static.msromantic.com/229707/azazie-azazie-milagros.jpg" alt="Azazie Azazie Milagros" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88197-azazie-azazie-milagros.html"><img src="//static.msromantic.com/229708/azazie-azazie-milagros.jpg" alt="Azazie Azazie Milagros" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88197-azazie-azazie-milagros.html"><img src="//static.msromantic.com/229706/azazie-azazie-milagros.jpg" alt="Azazie Azazie Milagros" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/azazie-bridesmaid-dress/88197-azazie-azazie-milagros.html](https://www.readybrides.com/en/azazie-bridesmaid-dress/88197-azazie-azazie-milagros.html)
+<!-- break --><a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88197-azazie-azazie-milagros.html"><img src="//static.msromantic.com/229708/azazie-azazie-milagros.jpg" alt="Azazie Azazie Milagros" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88197-azazie-azazie-milagros.html"><img src="//static.msromantic.com/229706/azazie-azazie-milagros.jpg" alt="Azazie Azazie Milagros" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/azazie-bridesmaid-dress/88197-azazie-azazie-milagros.html](https://www.antebrands.com/en/azazie-bridesmaid-dress/88197-azazie-azazie-milagros.html)

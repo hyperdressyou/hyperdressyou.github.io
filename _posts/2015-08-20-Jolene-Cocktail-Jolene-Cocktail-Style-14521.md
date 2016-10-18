@@ -9,7 +9,7 @@ tags: [Jolene Cocktail Jolene Cocktail]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jolene-cocktail-jolene-cocktail/89776-jolene-cocktail-jolene-cocktail-style-14521.html"><img src="//static.msromantic.com/233735/jolene-cocktail-jolene-cocktail-style-14521.jpg" alt="Jolene Cocktail Jolene Cocktail Style 14521" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jolene-cocktail-jolene-cocktail/89776-jolene-cocktail-jolene-cocktail-style-14521.html"><img src="//static.msromantic.com/233735/jolene-cocktail-jolene-cocktail-style-14521.jpg" alt="Jolene Cocktail Jolene Cocktail Style 14521" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jolene-cocktail-jolene-cocktail/89776-jolene-cocktail-jolene-cocktail-style-14521.html"><img src="//static.msromantic.com/233734/jolene-cocktail-jolene-cocktail-style-14521.jpg" alt="Jolene Cocktail Jolene Cocktail Style 14521" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jolene-cocktail-jolene-cocktail/89776-jolene-cocktail-jolene-cocktail-style-14521.html](https://www.readybrides.com/en/jolene-cocktail-jolene-cocktail/89776-jolene-cocktail-jolene-cocktail-style-14521.html)
+<!-- break --><a href="https://www.antebrands.com/en/jolene-cocktail-jolene-cocktail/89776-jolene-cocktail-jolene-cocktail-style-14521.html"><img src="//static.msromantic.com/233734/jolene-cocktail-jolene-cocktail-style-14521.jpg" alt="Jolene Cocktail Jolene Cocktail Style 14521" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jolene-cocktail-jolene-cocktail/89776-jolene-cocktail-jolene-cocktail-style-14521.html](https://www.antebrands.com/en/jolene-cocktail-jolene-cocktail/89776-jolene-cocktail-jolene-cocktail-style-14521.html)

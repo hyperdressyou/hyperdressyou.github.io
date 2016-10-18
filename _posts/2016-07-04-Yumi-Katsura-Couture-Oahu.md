@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$409.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/84024-yumi-katsura-couture-oahu.html"><img src="//static.msromantic.com/215730/yumi-katsura-couture-oahu.jpg" alt="Yumi Katsura Couture Oahu" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/84024-yumi-katsura-couture-oahu.html"><img src="//static.msromantic.com/215730/yumi-katsura-couture-oahu.jpg" alt="Yumi Katsura Couture Oahu" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/84024-yumi-katsura-couture-oahu.html](https://www.readybrides.com/en/yumi-katsura-couture/84024-yumi-katsura-couture-oahu.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/84024-yumi-katsura-couture-oahu.html](https://www.antebrands.com/en/yumi-katsura-couture/84024-yumi-katsura-couture-oahu.html)

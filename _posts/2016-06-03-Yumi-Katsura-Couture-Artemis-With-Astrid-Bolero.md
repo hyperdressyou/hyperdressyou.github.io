@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$499.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83993-yumi-katsura-couture-artemis-with-astrid-bolero.html"><img src="//static.msromantic.com/215692/yumi-katsura-couture-artemis-with-astrid-bolero.jpg" alt="Yumi Katsura Couture Artemis With Astrid Bolero" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83993-yumi-katsura-couture-artemis-with-astrid-bolero.html"><img src="//static.msromantic.com/215692/yumi-katsura-couture-artemis-with-astrid-bolero.jpg" alt="Yumi Katsura Couture Artemis With Astrid Bolero" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83993-yumi-katsura-couture-artemis-with-astrid-bolero.html](https://www.readybrides.com/en/yumi-katsura-couture/83993-yumi-katsura-couture-artemis-with-astrid-bolero.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83993-yumi-katsura-couture-artemis-with-astrid-bolero.html](https://www.antebrands.com/en/yumi-katsura-couture/83993-yumi-katsura-couture-artemis-with-astrid-bolero.html)

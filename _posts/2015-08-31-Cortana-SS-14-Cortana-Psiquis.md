@@ -9,7 +9,7 @@ tags: [Cortana SS 14]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/cortana-ss-14/84183-cortana-psiquis.html"><img src="//static.msromantic.com/216514/cortana-psiquis.jpg" alt="Cortana Psiquis" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cortana-ss-14/84183-cortana-psiquis.html"><img src="//static.msromantic.com/216514/cortana-psiquis.jpg" alt="Cortana Psiquis" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/cortana-ss-14/84183-cortana-psiquis.html"><img src="//static.msromantic.com/216513/cortana-psiquis.jpg" alt="Cortana Psiquis" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/cortana-ss-14/84183-cortana-psiquis.html](https://www.readybrides.com/en/cortana-ss-14/84183-cortana-psiquis.html)
+<!-- break --><a href="https://www.antebrands.com/en/cortana-ss-14/84183-cortana-psiquis.html"><img src="//static.msromantic.com/216513/cortana-psiquis.jpg" alt="Cortana Psiquis" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/cortana-ss-14/84183-cortana-psiquis.html](https://www.antebrands.com/en/cortana-ss-14/84183-cortana-psiquis.html)

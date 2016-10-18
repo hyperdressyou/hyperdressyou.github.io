@@ -9,7 +9,7 @@ tags: [Janique Mother of the Bride]
 Just **$419.99**
 ### 
 
-<a href="https://www.readybrides.com/en/janique-mother-of-the-bride/88517-janique-mother-of-the-bride-style-528.html"><img src="//static.msromantic.com/230759/janique-mother-of-the-bride-style-528.jpg" alt="Janique Mother of the Bride Style 528" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/janique-mother-of-the-bride/88517-janique-mother-of-the-bride-style-528.html"><img src="//static.msromantic.com/230759/janique-mother-of-the-bride-style-528.jpg" alt="Janique Mother of the Bride Style 528" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/janique-mother-of-the-bride/88517-janique-mother-of-the-bride-style-528.html](https://www.readybrides.com/en/janique-mother-of-the-bride/88517-janique-mother-of-the-bride-style-528.html)
+Buy it: [https://www.antebrands.com/en/janique-mother-of-the-bride/88517-janique-mother-of-the-bride-style-528.html](https://www.antebrands.com/en/janique-mother-of-the-bride/88517-janique-mother-of-the-bride-style-528.html)

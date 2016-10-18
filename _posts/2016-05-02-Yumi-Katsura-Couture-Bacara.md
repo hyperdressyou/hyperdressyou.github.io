@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83961-yumi-katsura-couture-bacara.html"><img src="//static.msromantic.com/215657/yumi-katsura-couture-bacara.jpg" alt="Yumi Katsura Couture Bacara" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83961-yumi-katsura-couture-bacara.html"><img src="//static.msromantic.com/215657/yumi-katsura-couture-bacara.jpg" alt="Yumi Katsura Couture Bacara" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83961-yumi-katsura-couture-bacara.html](https://www.readybrides.com/en/yumi-katsura-couture/83961-yumi-katsura-couture-bacara.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83961-yumi-katsura-couture-bacara.html](https://www.antebrands.com/en/yumi-katsura-couture/83961-yumi-katsura-couture-bacara.html)

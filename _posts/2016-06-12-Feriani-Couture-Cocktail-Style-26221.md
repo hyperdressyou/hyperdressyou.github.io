@@ -9,7 +9,7 @@ tags: [Feriani Couture Cocktail]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/feriani-couture-cocktail/87271-feriani-couture-cocktail-style-26221.html"><img src="//static.msromantic.com/226882/feriani-couture-cocktail-style-26221.jpg" alt="Feriani Couture Cocktail Style 26221" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/feriani-couture-cocktail/87271-feriani-couture-cocktail-style-26221.html"><img src="//static.msromantic.com/226882/feriani-couture-cocktail-style-26221.jpg" alt="Feriani Couture Cocktail Style 26221" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/feriani-couture-cocktail/87271-feriani-couture-cocktail-style-26221.html](https://www.readybrides.com/en/feriani-couture-cocktail/87271-feriani-couture-cocktail-style-26221.html)
+Buy it: [https://www.antebrands.com/en/feriani-couture-cocktail/87271-feriani-couture-cocktail-style-26221.html](https://www.antebrands.com/en/feriani-couture-cocktail/87271-feriani-couture-cocktail-style-26221.html)

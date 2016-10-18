@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$190.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89137-shop-joielle-v-neck-jersey-dress.html"><img src="//static.msromantic.com/232137/shop-joielle-v-neck-jersey-dress.jpg" alt="Shop Joielle V-Neck Jersey Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89137-shop-joielle-v-neck-jersey-dress.html"><img src="//static.msromantic.com/232137/shop-joielle-v-neck-jersey-dress.jpg" alt="Shop Joielle V-Neck Jersey Dress" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/89137-shop-joielle-v-neck-jersey-dress.html"><img src="//static.msromantic.com/232136/shop-joielle-v-neck-jersey-dress.jpg" alt="Shop Joielle V-Neck Jersey Dress" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89137-shop-joielle-v-neck-jersey-dress.html](https://www.readybrides.com/en/shop-joielle-women/89137-shop-joielle-v-neck-jersey-dress.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/89137-shop-joielle-v-neck-jersey-dress.html"><img src="//static.msromantic.com/232136/shop-joielle-v-neck-jersey-dress.jpg" alt="Shop Joielle V-Neck Jersey Dress" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89137-shop-joielle-v-neck-jersey-dress.html](https://www.antebrands.com/en/shop-joielle-women/89137-shop-joielle-v-neck-jersey-dress.html)

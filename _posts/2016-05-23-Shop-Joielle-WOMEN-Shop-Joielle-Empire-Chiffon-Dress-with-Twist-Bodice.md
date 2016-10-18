@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$220.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89119-shop-joielle-empire-chiffon-dress-with-twist-bodice.html"><img src="//static.msromantic.com/232101/shop-joielle-empire-chiffon-dress-with-twist-bodice.jpg" alt="Shop Joielle Empire Chiffon Dress with Twist Bodice" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89119-shop-joielle-empire-chiffon-dress-with-twist-bodice.html"><img src="//static.msromantic.com/232101/shop-joielle-empire-chiffon-dress-with-twist-bodice.jpg" alt="Shop Joielle Empire Chiffon Dress with Twist Bodice" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/89119-shop-joielle-empire-chiffon-dress-with-twist-bodice.html"><img src="//static.msromantic.com/232100/shop-joielle-empire-chiffon-dress-with-twist-bodice.jpg" alt="Shop Joielle Empire Chiffon Dress with Twist Bodice" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89119-shop-joielle-empire-chiffon-dress-with-twist-bodice.html](https://www.readybrides.com/en/shop-joielle-women/89119-shop-joielle-empire-chiffon-dress-with-twist-bodice.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/89119-shop-joielle-empire-chiffon-dress-with-twist-bodice.html"><img src="//static.msromantic.com/232100/shop-joielle-empire-chiffon-dress-with-twist-bodice.jpg" alt="Shop Joielle Empire Chiffon Dress with Twist Bodice" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89119-shop-joielle-empire-chiffon-dress-with-twist-bodice.html](https://www.antebrands.com/en/shop-joielle-women/89119-shop-joielle-empire-chiffon-dress-with-twist-bodice.html)

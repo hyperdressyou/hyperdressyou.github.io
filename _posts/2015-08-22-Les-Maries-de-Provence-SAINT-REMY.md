@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85108-les-mariees-de-provence-saint-remy.html"><img src="//static.msromantic.com/223060/les-mariees-de-provence-saint-remy.jpg" alt="Les Mariées de Provence SAINT REMY" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85108-les-mariees-de-provence-saint-remy.html"><img src="//static.msromantic.com/223060/les-mariees-de-provence-saint-remy.jpg" alt="Les Mariées de Provence SAINT REMY" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85108-les-mariees-de-provence-saint-remy.html](https://www.readybrides.com/en/les-mariees-de-provence/85108-les-mariees-de-provence-saint-remy.html)
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85108-les-mariees-de-provence-saint-remy.html](https://www.antebrands.com/en/les-mariees-de-provence/85108-les-mariees-de-provence-saint-remy.html)

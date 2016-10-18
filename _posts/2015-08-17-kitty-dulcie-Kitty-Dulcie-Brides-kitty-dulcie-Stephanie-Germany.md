@@ -9,7 +9,7 @@ tags: [kitty & dulcie Kitty & Dulcie Brides]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87905-kitty-dulcie-stephanie-germany.html"><img src="//static.msromantic.com/228930/kitty-dulcie-stephanie-germany.jpg" alt="kitty & dulcie Stephanie (Germany)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87905-kitty-dulcie-stephanie-germany.html"><img src="//static.msromantic.com/228930/kitty-dulcie-stephanie-germany.jpg" alt="kitty & dulcie Stephanie (Germany)" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87905-kitty-dulcie-stephanie-germany.html](https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87905-kitty-dulcie-stephanie-germany.html)
+Buy it: [https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87905-kitty-dulcie-stephanie-germany.html](https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87905-kitty-dulcie-stephanie-germany.html)

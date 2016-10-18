@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85039-les-mariees-de-provence-aubepine.html"><img src="//static.msromantic.com/222921/les-mariees-de-provence-aubepine.jpg" alt="Les Mariées de Provence AUBEPINE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85039-les-mariees-de-provence-aubepine.html"><img src="//static.msromantic.com/222921/les-mariees-de-provence-aubepine.jpg" alt="Les Mariées de Provence AUBEPINE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85039-les-mariees-de-provence-aubepine.html](https://www.readybrides.com/en/les-mariees-de-provence/85039-les-mariees-de-provence-aubepine.html)
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85039-les-mariees-de-provence-aubepine.html](https://www.antebrands.com/en/les-mariees-de-provence/85039-les-mariees-de-provence-aubepine.html)

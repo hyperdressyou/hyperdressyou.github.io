@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/84001-yumi-katsura-couture-isa-short.html"><img src="//static.msromantic.com/215700/yumi-katsura-couture-isa-short.jpg" alt="Yumi Katsura Couture Isa Short" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/84001-yumi-katsura-couture-isa-short.html"><img src="//static.msromantic.com/215700/yumi-katsura-couture-isa-short.jpg" alt="Yumi Katsura Couture Isa Short" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/84001-yumi-katsura-couture-isa-short.html](https://www.readybrides.com/en/yumi-katsura-couture/84001-yumi-katsura-couture-isa-short.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/84001-yumi-katsura-couture-isa-short.html](https://www.antebrands.com/en/yumi-katsura-couture/84001-yumi-katsura-couture-isa-short.html)

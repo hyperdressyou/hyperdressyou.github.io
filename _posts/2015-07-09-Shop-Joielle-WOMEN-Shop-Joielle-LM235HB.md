@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$178.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/88800-shop-joielle-lm235hb.html"><img src="//static.msromantic.com/231469/shop-joielle-lm235hb.jpg" alt="Shop Joielle LM235HB" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/88800-shop-joielle-lm235hb.html"><img src="//static.msromantic.com/231469/shop-joielle-lm235hb.jpg" alt="Shop Joielle LM235HB" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/88800-shop-joielle-lm235hb.html"><img src="//static.msromantic.com/231468/shop-joielle-lm235hb.jpg" alt="Shop Joielle LM235HB" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/88800-shop-joielle-lm235hb.html](https://www.readybrides.com/en/shop-joielle-women/88800-shop-joielle-lm235hb.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/88800-shop-joielle-lm235hb.html"><img src="//static.msromantic.com/231468/shop-joielle-lm235hb.jpg" alt="Shop Joielle LM235HB" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/88800-shop-joielle-lm235hb.html](https://www.antebrands.com/en/shop-joielle-women/88800-shop-joielle-lm235hb.html)

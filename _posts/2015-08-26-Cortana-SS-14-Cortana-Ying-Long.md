@@ -9,8 +9,8 @@ tags: [Cortana SS 14]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/cortana-ss-14/84178-cortana-ying-long.html"><img src="//static.msromantic.com/216497/cortana-ying-long.jpg" alt="Cortana Ying Long" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cortana-ss-14/84178-cortana-ying-long.html"><img src="//static.msromantic.com/216497/cortana-ying-long.jpg" alt="Cortana Ying Long" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/cortana-ss-14/84178-cortana-ying-long.html"><img src="//static.msromantic.com/216498/cortana-ying-long.jpg" alt="Cortana Ying Long" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/cortana-ss-14/84178-cortana-ying-long.html"><img src="//static.msromantic.com/216496/cortana-ying-long.jpg" alt="Cortana Ying Long" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/cortana-ss-14/84178-cortana-ying-long.html](https://www.readybrides.com/en/cortana-ss-14/84178-cortana-ying-long.html)
+<!-- break --><a href="https://www.antebrands.com/en/cortana-ss-14/84178-cortana-ying-long.html"><img src="//static.msromantic.com/216498/cortana-ying-long.jpg" alt="Cortana Ying Long" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cortana-ss-14/84178-cortana-ying-long.html"><img src="//static.msromantic.com/216496/cortana-ying-long.jpg" alt="Cortana Ying Long" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/cortana-ss-14/84178-cortana-ying-long.html](https://www.antebrands.com/en/cortana-ss-14/84178-cortana-ying-long.html)

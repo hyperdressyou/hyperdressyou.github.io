@@ -9,7 +9,7 @@ tags: [kitty & dulcie Kitty & Dulcie Brides]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87996-kitty-dulcie-sophie-france.html"><img src="//static.msromantic.com/229021/kitty-dulcie-sophie-france.jpg" alt="kitty & dulcie Sophie (France)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87996-kitty-dulcie-sophie-france.html"><img src="//static.msromantic.com/229021/kitty-dulcie-sophie-france.jpg" alt="kitty & dulcie Sophie (France)" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87996-kitty-dulcie-sophie-france.html](https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87996-kitty-dulcie-sophie-france.html)
+Buy it: [https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87996-kitty-dulcie-sophie-france.html](https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87996-kitty-dulcie-sophie-france.html)

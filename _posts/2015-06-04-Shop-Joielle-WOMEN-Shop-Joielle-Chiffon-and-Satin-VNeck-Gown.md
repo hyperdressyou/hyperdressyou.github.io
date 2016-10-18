@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$220.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89232-shop-joielle-chiffon-and-satin-v-neck-gown.html"><img src="//static.msromantic.com/232330/shop-joielle-chiffon-and-satin-v-neck-gown.jpg" alt="Shop Joielle Chiffon and Satin V-Neck Gown" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89232-shop-joielle-chiffon-and-satin-v-neck-gown.html"><img src="//static.msromantic.com/232330/shop-joielle-chiffon-and-satin-v-neck-gown.jpg" alt="Shop Joielle Chiffon and Satin V-Neck Gown" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89232-shop-joielle-chiffon-and-satin-v-neck-gown.html](https://www.readybrides.com/en/shop-joielle-women/89232-shop-joielle-chiffon-and-satin-v-neck-gown.html)
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89232-shop-joielle-chiffon-and-satin-v-neck-gown.html](https://www.antebrands.com/en/shop-joielle-women/89232-shop-joielle-chiffon-and-satin-v-neck-gown.html)

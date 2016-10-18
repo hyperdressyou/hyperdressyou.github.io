@@ -9,8 +9,8 @@ tags: [Azazie Bridesmaid Dress]
 Just **$169.99**
 ### 
 
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88152-azazie-azazie-kierra.html"><img src="//static.msromantic.com/229566/azazie-azazie-kierra.jpg" alt="Azazie Azazie Kierra" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88152-azazie-azazie-kierra.html"><img src="//static.msromantic.com/229566/azazie-azazie-kierra.jpg" alt="Azazie Azazie Kierra" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88152-azazie-azazie-kierra.html"><img src="//static.msromantic.com/229567/azazie-azazie-kierra.jpg" alt="Azazie Azazie Kierra" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88152-azazie-azazie-kierra.html"><img src="//static.msromantic.com/229565/azazie-azazie-kierra.jpg" alt="Azazie Azazie Kierra" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/azazie-bridesmaid-dress/88152-azazie-azazie-kierra.html](https://www.readybrides.com/en/azazie-bridesmaid-dress/88152-azazie-azazie-kierra.html)
+<!-- break --><a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88152-azazie-azazie-kierra.html"><img src="//static.msromantic.com/229567/azazie-azazie-kierra.jpg" alt="Azazie Azazie Kierra" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88152-azazie-azazie-kierra.html"><img src="//static.msromantic.com/229565/azazie-azazie-kierra.jpg" alt="Azazie Azazie Kierra" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/azazie-bridesmaid-dress/88152-azazie-azazie-kierra.html](https://www.antebrands.com/en/azazie-bridesmaid-dress/88152-azazie-azazie-kierra.html)

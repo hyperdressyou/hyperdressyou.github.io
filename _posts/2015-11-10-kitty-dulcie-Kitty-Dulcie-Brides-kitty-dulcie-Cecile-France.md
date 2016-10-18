@@ -9,7 +9,7 @@ tags: [kitty & dulcie Kitty & Dulcie Brides]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87990-kitty-dulcie-cecile-france.html"><img src="//static.msromantic.com/229015/kitty-dulcie-cecile-france.jpg" alt="kitty & dulcie Cecile (France)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87990-kitty-dulcie-cecile-france.html"><img src="//static.msromantic.com/229015/kitty-dulcie-cecile-france.jpg" alt="kitty & dulcie Cecile (France)" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87990-kitty-dulcie-cecile-france.html](https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87990-kitty-dulcie-cecile-france.html)
+Buy it: [https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87990-kitty-dulcie-cecile-france.html](https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87990-kitty-dulcie-cecile-france.html)

@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83959-yumi-katsura-couture-cordula.html"><img src="//static.msromantic.com/215655/yumi-katsura-couture-cordula.jpg" alt="Yumi Katsura Couture Cordula" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83959-yumi-katsura-couture-cordula.html"><img src="//static.msromantic.com/215655/yumi-katsura-couture-cordula.jpg" alt="Yumi Katsura Couture Cordula" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83959-yumi-katsura-couture-cordula.html](https://www.readybrides.com/en/yumi-katsura-couture/83959-yumi-katsura-couture-cordula.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83959-yumi-katsura-couture-cordula.html](https://www.antebrands.com/en/yumi-katsura-couture/83959-yumi-katsura-couture-cordula.html)

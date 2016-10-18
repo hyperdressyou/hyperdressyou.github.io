@@ -9,7 +9,7 @@ tags: [Anna Elyse Whats New]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/anna-elyse-whats-new/86799-anna-elyse-pencil-skirt-with-simple-tank-bodice.html"><img src="//static.msromantic.com/225925/anna-elyse-pencil-skirt-with-simple-tank-bodice.jpg" alt="Anna Elyse Pencil Skirt with Simple Tank Bodice" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/anna-elyse-whats-new/86799-anna-elyse-pencil-skirt-with-simple-tank-bodice.html"><img src="//static.msromantic.com/225925/anna-elyse-pencil-skirt-with-simple-tank-bodice.jpg" alt="Anna Elyse Pencil Skirt with Simple Tank Bodice" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/anna-elyse-whats-new/86799-anna-elyse-pencil-skirt-with-simple-tank-bodice.html](https://www.readybrides.com/en/anna-elyse-whats-new/86799-anna-elyse-pencil-skirt-with-simple-tank-bodice.html)
+Buy it: [https://www.antebrands.com/en/anna-elyse-whats-new/86799-anna-elyse-pencil-skirt-with-simple-tank-bodice.html](https://www.antebrands.com/en/anna-elyse-whats-new/86799-anna-elyse-pencil-skirt-with-simple-tank-bodice.html)

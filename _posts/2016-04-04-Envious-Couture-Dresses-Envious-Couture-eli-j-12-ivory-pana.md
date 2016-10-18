@@ -9,7 +9,7 @@ tags: [Envious Couture Dresses]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/envious-couture-dresses/86735-envious-couture-eli-j-12-ivory-pana.html"><img src="//static.msromantic.com/225861/envious-couture-eli-j-12-ivory-pana.jpg" alt="Envious Couture eli j  12 ivory pana" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/envious-couture-dresses/86735-envious-couture-eli-j-12-ivory-pana.html"><img src="//static.msromantic.com/225861/envious-couture-eli-j-12-ivory-pana.jpg" alt="Envious Couture eli j  12 ivory pana" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/envious-couture-dresses/86735-envious-couture-eli-j-12-ivory-pana.html](https://www.readybrides.com/en/envious-couture-dresses/86735-envious-couture-eli-j-12-ivory-pana.html)
+Buy it: [https://www.antebrands.com/en/envious-couture-dresses/86735-envious-couture-eli-j-12-ivory-pana.html](https://www.antebrands.com/en/envious-couture-dresses/86735-envious-couture-eli-j-12-ivory-pana.html)

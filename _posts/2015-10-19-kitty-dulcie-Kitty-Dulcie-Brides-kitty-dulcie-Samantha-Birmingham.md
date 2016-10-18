@@ -9,7 +9,7 @@ tags: [kitty & dulcie Kitty & Dulcie Brides]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87968-kitty-dulcie-samantha-birmingham.html"><img src="//static.msromantic.com/228993/kitty-dulcie-samantha-birmingham.jpg" alt="kitty & dulcie Samantha (Birmingham)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87968-kitty-dulcie-samantha-birmingham.html"><img src="//static.msromantic.com/228993/kitty-dulcie-samantha-birmingham.jpg" alt="kitty & dulcie Samantha (Birmingham)" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87968-kitty-dulcie-samantha-birmingham.html](https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87968-kitty-dulcie-samantha-birmingham.html)
+Buy it: [https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87968-kitty-dulcie-samantha-birmingham.html](https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87968-kitty-dulcie-samantha-birmingham.html)

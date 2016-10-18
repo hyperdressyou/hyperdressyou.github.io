@@ -9,7 +9,7 @@ tags: [Janique Cocktail]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/janique-cocktail/88449-janique-cocktail-style-k6411.html"><img src="//static.msromantic.com/230603/janique-cocktail-style-k6411.jpg" alt="Janique Cocktail Style K6411" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/janique-cocktail/88449-janique-cocktail-style-k6411.html"><img src="//static.msromantic.com/230603/janique-cocktail-style-k6411.jpg" alt="Janique Cocktail Style K6411" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/janique-cocktail/88449-janique-cocktail-style-k6411.html"><img src="//static.msromantic.com/230602/janique-cocktail-style-k6411.jpg" alt="Janique Cocktail Style K6411" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/janique-cocktail/88449-janique-cocktail-style-k6411.html](https://www.readybrides.com/en/janique-cocktail/88449-janique-cocktail-style-k6411.html)
+<!-- break --><a href="https://www.antebrands.com/en/janique-cocktail/88449-janique-cocktail-style-k6411.html"><img src="//static.msromantic.com/230602/janique-cocktail-style-k6411.jpg" alt="Janique Cocktail Style K6411" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/janique-cocktail/88449-janique-cocktail-style-k6411.html](https://www.antebrands.com/en/janique-cocktail/88449-janique-cocktail-style-k6411.html)

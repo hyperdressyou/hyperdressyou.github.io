@@ -9,7 +9,7 @@ tags: [Feriani Couture Evening]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/feriani-couture-evening/87248-feriani-couture-evening-style-18399.html"><img src="//static.msromantic.com/226859/feriani-couture-evening-style-18399.jpg" alt="Feriani Couture Evening Style 18399" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/feriani-couture-evening/87248-feriani-couture-evening-style-18399.html"><img src="//static.msromantic.com/226859/feriani-couture-evening-style-18399.jpg" alt="Feriani Couture Evening Style 18399" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/feriani-couture-evening/87248-feriani-couture-evening-style-18399.html](https://www.readybrides.com/en/feriani-couture-evening/87248-feriani-couture-evening-style-18399.html)
+Buy it: [https://www.antebrands.com/en/feriani-couture-evening/87248-feriani-couture-evening-style-18399.html](https://www.antebrands.com/en/feriani-couture-evening/87248-feriani-couture-evening-style-18399.html)

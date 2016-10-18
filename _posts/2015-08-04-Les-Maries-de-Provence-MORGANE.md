@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85090-les-mariees-de-provence-morgane.html"><img src="//static.msromantic.com/223022/les-mariees-de-provence-morgane.jpg" alt="Les Mariées de Provence MORGANE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85090-les-mariees-de-provence-morgane.html"><img src="//static.msromantic.com/223022/les-mariees-de-provence-morgane.jpg" alt="Les Mariées de Provence MORGANE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85090-les-mariees-de-provence-morgane.html](https://www.readybrides.com/en/les-mariees-de-provence/85090-les-mariees-de-provence-morgane.html)
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85090-les-mariees-de-provence-morgane.html](https://www.antebrands.com/en/les-mariees-de-provence/85090-les-mariees-de-provence-morgane.html)

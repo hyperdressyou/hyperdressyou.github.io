@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$190.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89169-shop-joielle-d611.html"><img src="//static.msromantic.com/232199/shop-joielle-d611.jpg" alt="Shop Joielle D611" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89169-shop-joielle-d611.html"><img src="//static.msromantic.com/232199/shop-joielle-d611.jpg" alt="Shop Joielle D611" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/89169-shop-joielle-d611.html"><img src="//static.msromantic.com/232198/shop-joielle-d611.jpg" alt="Shop Joielle D611" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89169-shop-joielle-d611.html](https://www.readybrides.com/en/shop-joielle-women/89169-shop-joielle-d611.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/89169-shop-joielle-d611.html"><img src="//static.msromantic.com/232198/shop-joielle-d611.jpg" alt="Shop Joielle D611" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89169-shop-joielle-d611.html](https://www.antebrands.com/en/shop-joielle-women/89169-shop-joielle-d611.html)

@@ -9,7 +9,7 @@ tags: [Cristine Cocktail Dress]
 Just **$519.99**
 ### 
 
-<a href="https://www.readybrides.com/en/cristine-cocktail-dress/86509-cristine-cocktail-dress-style-k3054.html"><img src="//static.msromantic.com/225415/cristine-cocktail-dress-style-k3054.jpg" alt="Cristine Cocktail Dress Style K3054" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cristine-cocktail-dress/86509-cristine-cocktail-dress-style-k3054.html"><img src="//static.msromantic.com/225415/cristine-cocktail-dress-style-k3054.jpg" alt="Cristine Cocktail Dress Style K3054" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/cristine-cocktail-dress/86509-cristine-cocktail-dress-style-k3054.html"><img src="//static.msromantic.com/225414/cristine-cocktail-dress-style-k3054.jpg" alt="Cristine Cocktail Dress Style K3054" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/cristine-cocktail-dress/86509-cristine-cocktail-dress-style-k3054.html](https://www.readybrides.com/en/cristine-cocktail-dress/86509-cristine-cocktail-dress-style-k3054.html)
+<!-- break --><a href="https://www.antebrands.com/en/cristine-cocktail-dress/86509-cristine-cocktail-dress-style-k3054.html"><img src="//static.msromantic.com/225414/cristine-cocktail-dress-style-k3054.jpg" alt="Cristine Cocktail Dress Style K3054" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/cristine-cocktail-dress/86509-cristine-cocktail-dress-style-k3054.html](https://www.antebrands.com/en/cristine-cocktail-dress/86509-cristine-cocktail-dress-style-k3054.html)

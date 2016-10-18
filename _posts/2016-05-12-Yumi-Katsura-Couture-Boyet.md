@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$459.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83971-yumi-katsura-couture-boyet.html"><img src="//static.msromantic.com/215670/yumi-katsura-couture-boyet.jpg" alt="Yumi Katsura Couture Boyet" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83971-yumi-katsura-couture-boyet.html"><img src="//static.msromantic.com/215670/yumi-katsura-couture-boyet.jpg" alt="Yumi Katsura Couture Boyet" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83971-yumi-katsura-couture-boyet.html](https://www.readybrides.com/en/yumi-katsura-couture/83971-yumi-katsura-couture-boyet.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83971-yumi-katsura-couture-boyet.html](https://www.antebrands.com/en/yumi-katsura-couture/83971-yumi-katsura-couture-boyet.html)

@@ -9,8 +9,8 @@ tags: [Cortana SS 14]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/cortana-ss-14/84199-cortana-glicinia-top-and-trousers.html"><img src="//static.msromantic.com/216562/cortana-glicinia-top-and-trousers.jpg" alt="Cortana Glicinia top and trousers" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cortana-ss-14/84199-cortana-glicinia-top-and-trousers.html"><img src="//static.msromantic.com/216562/cortana-glicinia-top-and-trousers.jpg" alt="Cortana Glicinia top and trousers" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/cortana-ss-14/84199-cortana-glicinia-top-and-trousers.html"><img src="//static.msromantic.com/216563/cortana-glicinia-top-and-trousers.jpg" alt="Cortana Glicinia top and trousers" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/cortana-ss-14/84199-cortana-glicinia-top-and-trousers.html"><img src="//static.msromantic.com/216561/cortana-glicinia-top-and-trousers.jpg" alt="Cortana Glicinia top and trousers" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/cortana-ss-14/84199-cortana-glicinia-top-and-trousers.html](https://www.readybrides.com/en/cortana-ss-14/84199-cortana-glicinia-top-and-trousers.html)
+<!-- break --><a href="https://www.antebrands.com/en/cortana-ss-14/84199-cortana-glicinia-top-and-trousers.html"><img src="//static.msromantic.com/216563/cortana-glicinia-top-and-trousers.jpg" alt="Cortana Glicinia top and trousers" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cortana-ss-14/84199-cortana-glicinia-top-and-trousers.html"><img src="//static.msromantic.com/216561/cortana-glicinia-top-and-trousers.jpg" alt="Cortana Glicinia top and trousers" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/cortana-ss-14/84199-cortana-glicinia-top-and-trousers.html](https://www.antebrands.com/en/cortana-ss-14/84199-cortana-glicinia-top-and-trousers.html)

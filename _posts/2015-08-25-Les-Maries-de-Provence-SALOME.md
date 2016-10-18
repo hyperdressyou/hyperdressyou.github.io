@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85111-les-mariees-de-provence-salome.html"><img src="//static.msromantic.com/223063/les-mariees-de-provence-salome.jpg" alt="Les Mariées de Provence SALOME" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85111-les-mariees-de-provence-salome.html"><img src="//static.msromantic.com/223063/les-mariees-de-provence-salome.jpg" alt="Les Mariées de Provence SALOME" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85111-les-mariees-de-provence-salome.html](https://www.readybrides.com/en/les-mariees-de-provence/85111-les-mariees-de-provence-salome.html)
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85111-les-mariees-de-provence-salome.html](https://www.antebrands.com/en/les-mariees-de-provence/85111-les-mariees-de-provence-salome.html)

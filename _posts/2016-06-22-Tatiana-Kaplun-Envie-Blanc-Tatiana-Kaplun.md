@@ -9,7 +9,7 @@ tags: [Tatiana Kaplun Envie Blanc]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90083-tatiana-kaplun-melori.html"><img src="//static.msromantic.com/234453/tatiana-kaplun-melori.jpg" alt="Tatiana Kaplun Мелори" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90083-tatiana-kaplun-melori.html"><img src="//static.msromantic.com/234453/tatiana-kaplun-melori.jpg" alt="Tatiana Kaplun Мелори" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90083-tatiana-kaplun-melori.html"><img src="//static.msromantic.com/234452/tatiana-kaplun-melori.jpg" alt="Tatiana Kaplun Мелори" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90083-tatiana-kaplun-melori.html](https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90083-tatiana-kaplun-melori.html)
+<!-- break --><a href="https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90083-tatiana-kaplun-melori.html"><img src="//static.msromantic.com/234452/tatiana-kaplun-melori.jpg" alt="Tatiana Kaplun Мелори" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90083-tatiana-kaplun-melori.html](https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90083-tatiana-kaplun-melori.html)

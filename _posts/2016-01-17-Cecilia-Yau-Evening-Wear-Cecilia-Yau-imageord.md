@@ -9,7 +9,7 @@ tags: [Cecilia Yau Evening Wear]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/cecilia-yau-evening-wear/83855-cecilia-yau-imageord.html"><img src="//static.msromantic.com/215305/cecilia-yau-imageord.jpg" alt="Cecilia Yau imageord" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cecilia-yau-evening-wear/83855-cecilia-yau-imageord.html"><img src="//static.msromantic.com/215305/cecilia-yau-imageord.jpg" alt="Cecilia Yau imageord" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/cecilia-yau-evening-wear/83855-cecilia-yau-imageord.html](https://www.readybrides.com/en/cecilia-yau-evening-wear/83855-cecilia-yau-imageord.html)
+Buy it: [https://www.antebrands.com/en/cecilia-yau-evening-wear/83855-cecilia-yau-imageord.html](https://www.antebrands.com/en/cecilia-yau-evening-wear/83855-cecilia-yau-imageord.html)

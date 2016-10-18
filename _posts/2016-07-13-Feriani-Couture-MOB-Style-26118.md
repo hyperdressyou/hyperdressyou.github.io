@@ -9,7 +9,7 @@ tags: [Feriani Couture MOB]
 Just **$429.99**
 ### 
 
-<a href="https://www.readybrides.com/en/feriani-couture-mob/87302-feriani-couture-mob-style-26118.html"><img src="//static.msromantic.com/226913/feriani-couture-mob-style-26118.jpg" alt="Feriani Couture MOB Style 26118" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/feriani-couture-mob/87302-feriani-couture-mob-style-26118.html"><img src="//static.msromantic.com/226913/feriani-couture-mob-style-26118.jpg" alt="Feriani Couture MOB Style 26118" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/feriani-couture-mob/87302-feriani-couture-mob-style-26118.html](https://www.readybrides.com/en/feriani-couture-mob/87302-feriani-couture-mob-style-26118.html)
+Buy it: [https://www.antebrands.com/en/feriani-couture-mob/87302-feriani-couture-mob-style-26118.html](https://www.antebrands.com/en/feriani-couture-mob/87302-feriani-couture-mob-style-26118.html)

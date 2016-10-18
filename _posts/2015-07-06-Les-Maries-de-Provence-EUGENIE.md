@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85061-les-mariees-de-provence-eugenie.html"><img src="//static.msromantic.com/222966/les-mariees-de-provence-eugenie.jpg" alt="Les Mariées de Provence EUGENIE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85061-les-mariees-de-provence-eugenie.html"><img src="//static.msromantic.com/222966/les-mariees-de-provence-eugenie.jpg" alt="Les Mariées de Provence EUGENIE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85061-les-mariees-de-provence-eugenie.html](https://www.readybrides.com/en/les-mariees-de-provence/85061-les-mariees-de-provence-eugenie.html)
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85061-les-mariees-de-provence-eugenie.html](https://www.antebrands.com/en/les-mariees-de-provence/85061-les-mariees-de-provence-eugenie.html)

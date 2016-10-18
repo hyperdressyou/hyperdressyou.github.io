@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$280.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89134-shop-joielle-carita.html"><img src="//static.msromantic.com/232131/shop-joielle-carita.jpg" alt="Shop Joielle Carita" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89134-shop-joielle-carita.html"><img src="//static.msromantic.com/232131/shop-joielle-carita.jpg" alt="Shop Joielle Carita" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/89134-shop-joielle-carita.html"><img src="//static.msromantic.com/232130/shop-joielle-carita.jpg" alt="Shop Joielle Carita" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89134-shop-joielle-carita.html](https://www.readybrides.com/en/shop-joielle-women/89134-shop-joielle-carita.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/89134-shop-joielle-carita.html"><img src="//static.msromantic.com/232130/shop-joielle-carita.jpg" alt="Shop Joielle Carita" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89134-shop-joielle-carita.html](https://www.antebrands.com/en/shop-joielle-women/89134-shop-joielle-carita.html)

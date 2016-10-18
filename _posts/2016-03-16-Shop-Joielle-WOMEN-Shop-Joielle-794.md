@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$206.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89051-shop-joielle-794.html"><img src="//static.msromantic.com/231974/shop-joielle-794.jpg" alt="Shop Joielle 794" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89051-shop-joielle-794.html"><img src="//static.msromantic.com/231974/shop-joielle-794.jpg" alt="Shop Joielle 794" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/89051-shop-joielle-794.html"><img src="//static.msromantic.com/231973/shop-joielle-794.jpg" alt="Shop Joielle 794" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89051-shop-joielle-794.html](https://www.readybrides.com/en/shop-joielle-women/89051-shop-joielle-794.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/89051-shop-joielle-794.html"><img src="//static.msromantic.com/231973/shop-joielle-794.jpg" alt="Shop Joielle 794" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89051-shop-joielle-794.html](https://www.antebrands.com/en/shop-joielle-women/89051-shop-joielle-794.html)

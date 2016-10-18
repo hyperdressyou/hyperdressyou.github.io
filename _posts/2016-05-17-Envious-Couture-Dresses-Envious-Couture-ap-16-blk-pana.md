@@ -9,7 +9,7 @@ tags: [Envious Couture Dresses]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/envious-couture-dresses/86778-envious-couture-ap-16-blk-pana.html"><img src="//static.msromantic.com/225904/envious-couture-ap-16-blk-pana.jpg" alt="Envious Couture ap 16 blk pana" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/envious-couture-dresses/86778-envious-couture-ap-16-blk-pana.html"><img src="//static.msromantic.com/225904/envious-couture-ap-16-blk-pana.jpg" alt="Envious Couture ap 16 blk pana" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/envious-couture-dresses/86778-envious-couture-ap-16-blk-pana.html](https://www.readybrides.com/en/envious-couture-dresses/86778-envious-couture-ap-16-blk-pana.html)
+Buy it: [https://www.antebrands.com/en/envious-couture-dresses/86778-envious-couture-ap-16-blk-pana.html](https://www.antebrands.com/en/envious-couture-dresses/86778-envious-couture-ap-16-blk-pana.html)

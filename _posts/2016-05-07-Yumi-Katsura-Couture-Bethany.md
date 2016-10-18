@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83966-yumi-katsura-couture-bethany.html"><img src="//static.msromantic.com/215664/yumi-katsura-couture-bethany.jpg" alt="Yumi Katsura Couture Bethany" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83966-yumi-katsura-couture-bethany.html"><img src="//static.msromantic.com/215664/yumi-katsura-couture-bethany.jpg" alt="Yumi Katsura Couture Bethany" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83966-yumi-katsura-couture-bethany.html](https://www.readybrides.com/en/yumi-katsura-couture/83966-yumi-katsura-couture-bethany.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83966-yumi-katsura-couture-bethany.html](https://www.antebrands.com/en/yumi-katsura-couture/83966-yumi-katsura-couture-bethany.html)

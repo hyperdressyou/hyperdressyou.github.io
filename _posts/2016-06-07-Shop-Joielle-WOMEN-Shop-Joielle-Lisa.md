@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$296.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/88667-shop-joielle-lisa.html"><img src="//static.msromantic.com/231188/shop-joielle-lisa.jpg" alt="Shop Joielle Lisa" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/88667-shop-joielle-lisa.html"><img src="//static.msromantic.com/231188/shop-joielle-lisa.jpg" alt="Shop Joielle Lisa" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/88667-shop-joielle-lisa.html"><img src="//static.msromantic.com/231187/shop-joielle-lisa.jpg" alt="Shop Joielle Lisa" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/88667-shop-joielle-lisa.html](https://www.readybrides.com/en/shop-joielle-women/88667-shop-joielle-lisa.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/88667-shop-joielle-lisa.html"><img src="//static.msromantic.com/231187/shop-joielle-lisa.jpg" alt="Shop Joielle Lisa" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/88667-shop-joielle-lisa.html](https://www.antebrands.com/en/shop-joielle-women/88667-shop-joielle-lisa.html)

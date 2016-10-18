@@ -9,7 +9,7 @@ tags: [Bari Jay ]
 Just **$209.99**
 ### 
 
-<a href="https://www.readybrides.com/en/bari-jay-/85614-style-1505jr.html"><img src="//static.msromantic.com/224076/style-1505jr.jpg" alt="STYLE 1505JR" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/bari-jay-/85614-style-1505jr.html"><img src="//static.msromantic.com/224076/style-1505jr.jpg" alt="STYLE 1505JR" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/bari-jay-/85614-style-1505jr.html"><img src="//static.msromantic.com/224075/style-1505jr.jpg" alt="STYLE 1505JR" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/bari-jay-/85614-style-1505jr.html](https://www.readybrides.com/en/bari-jay-/85614-style-1505jr.html)
+<!-- break --><a href="https://www.antebrands.com/en/bari-jay-/85614-style-1505jr.html"><img src="//static.msromantic.com/224075/style-1505jr.jpg" alt="STYLE 1505JR" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/bari-jay-/85614-style-1505jr.html](https://www.antebrands.com/en/bari-jay-/85614-style-1505jr.html)

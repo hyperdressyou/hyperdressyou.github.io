@@ -9,7 +9,7 @@ tags: [Cristine Cocktail Dress]
 Just **$619.99**
 ### 
 
-<a href="https://www.readybrides.com/en/cristine-cocktail-dress/86504-cristine-cocktail-dress-style-d1009.html"><img src="//static.msromantic.com/225402/cristine-cocktail-dress-style-d1009.jpg" alt="Cristine Cocktail Dress Style D1009" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cristine-cocktail-dress/86504-cristine-cocktail-dress-style-d1009.html"><img src="//static.msromantic.com/225402/cristine-cocktail-dress-style-d1009.jpg" alt="Cristine Cocktail Dress Style D1009" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/cristine-cocktail-dress/86504-cristine-cocktail-dress-style-d1009.html"><img src="//static.msromantic.com/225401/cristine-cocktail-dress-style-d1009.jpg" alt="Cristine Cocktail Dress Style D1009" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/cristine-cocktail-dress/86504-cristine-cocktail-dress-style-d1009.html](https://www.readybrides.com/en/cristine-cocktail-dress/86504-cristine-cocktail-dress-style-d1009.html)
+<!-- break --><a href="https://www.antebrands.com/en/cristine-cocktail-dress/86504-cristine-cocktail-dress-style-d1009.html"><img src="//static.msromantic.com/225401/cristine-cocktail-dress-style-d1009.jpg" alt="Cristine Cocktail Dress Style D1009" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/cristine-cocktail-dress/86504-cristine-cocktail-dress-style-d1009.html](https://www.antebrands.com/en/cristine-cocktail-dress/86504-cristine-cocktail-dress-style-d1009.html)

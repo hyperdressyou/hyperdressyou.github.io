@@ -9,7 +9,7 @@ tags: [Oronovias Ascension Bernal 2016]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/oronovias-ascension-bernal-2016/85239-oronovias-luz.html"><img src="//static.msromantic.com/223313/oronovias-luz.jpg" alt="Oronovias LUZ" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/oronovias-ascension-bernal-2016/85239-oronovias-luz.html"><img src="//static.msromantic.com/223313/oronovias-luz.jpg" alt="Oronovias LUZ" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/oronovias-ascension-bernal-2016/85239-oronovias-luz.html"><img src="//static.msromantic.com/223312/oronovias-luz.jpg" alt="Oronovias LUZ" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/oronovias-ascension-bernal-2016/85239-oronovias-luz.html](https://www.readybrides.com/en/oronovias-ascension-bernal-2016/85239-oronovias-luz.html)
+<!-- break --><a href="https://www.antebrands.com/en/oronovias-ascension-bernal-2016/85239-oronovias-luz.html"><img src="//static.msromantic.com/223312/oronovias-luz.jpg" alt="Oronovias LUZ" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/oronovias-ascension-bernal-2016/85239-oronovias-luz.html](https://www.antebrands.com/en/oronovias-ascension-bernal-2016/85239-oronovias-luz.html)

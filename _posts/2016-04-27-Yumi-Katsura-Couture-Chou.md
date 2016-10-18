@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83956-yumi-katsura-couture-chou.html"><img src="//static.msromantic.com/215651/yumi-katsura-couture-chou.jpg" alt="Yumi Katsura Couture Chou" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83956-yumi-katsura-couture-chou.html"><img src="//static.msromantic.com/215651/yumi-katsura-couture-chou.jpg" alt="Yumi Katsura Couture Chou" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/yumi-katsura-couture/83956-yumi-katsura-couture-chou.html"><img src="//static.msromantic.com/215650/yumi-katsura-couture-chou.jpg" alt="Yumi Katsura Couture Chou" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83956-yumi-katsura-couture-chou.html](https://www.readybrides.com/en/yumi-katsura-couture/83956-yumi-katsura-couture-chou.html)
+<!-- break --><a href="https://www.antebrands.com/en/yumi-katsura-couture/83956-yumi-katsura-couture-chou.html"><img src="//static.msromantic.com/215650/yumi-katsura-couture-chou.jpg" alt="Yumi Katsura Couture Chou" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83956-yumi-katsura-couture-chou.html](https://www.antebrands.com/en/yumi-katsura-couture/83956-yumi-katsura-couture-chou.html)

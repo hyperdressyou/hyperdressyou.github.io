@@ -9,7 +9,7 @@ tags: [kitty & dulcie Kitty & Dulcie Brides]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87942-kitty-dulcie-simone-suffolk.html"><img src="//static.msromantic.com/228967/kitty-dulcie-simone-suffolk.jpg" alt="kitty & dulcie Simone (Suffolk)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87942-kitty-dulcie-simone-suffolk.html"><img src="//static.msromantic.com/228967/kitty-dulcie-simone-suffolk.jpg" alt="kitty & dulcie Simone (Suffolk)" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87942-kitty-dulcie-simone-suffolk.html](https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87942-kitty-dulcie-simone-suffolk.html)
+Buy it: [https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87942-kitty-dulcie-simone-suffolk.html](https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87942-kitty-dulcie-simone-suffolk.html)

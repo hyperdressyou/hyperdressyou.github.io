@@ -9,7 +9,7 @@ tags: [kitty & dulcie Kitty & Dulcie Brides]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87903-kitty-dulcie-samantha-cornwall.html"><img src="//static.msromantic.com/228928/kitty-dulcie-samantha-cornwall.jpg" alt="kitty & dulcie Samantha (Cornwall)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87903-kitty-dulcie-samantha-cornwall.html"><img src="//static.msromantic.com/228928/kitty-dulcie-samantha-cornwall.jpg" alt="kitty & dulcie Samantha (Cornwall)" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87903-kitty-dulcie-samantha-cornwall.html](https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87903-kitty-dulcie-samantha-cornwall.html)
+Buy it: [https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87903-kitty-dulcie-samantha-cornwall.html](https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87903-kitty-dulcie-samantha-cornwall.html)

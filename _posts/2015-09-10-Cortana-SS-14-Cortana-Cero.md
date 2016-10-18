@@ -9,8 +9,8 @@ tags: [Cortana SS 14]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/cortana-ss-14/84193-cortana-cero.html"><img src="//static.msromantic.com/216544/cortana-cero.jpg" alt="Cortana Cero" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cortana-ss-14/84193-cortana-cero.html"><img src="//static.msromantic.com/216544/cortana-cero.jpg" alt="Cortana Cero" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/cortana-ss-14/84193-cortana-cero.html"><img src="//static.msromantic.com/216545/cortana-cero.jpg" alt="Cortana Cero" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/cortana-ss-14/84193-cortana-cero.html"><img src="//static.msromantic.com/216543/cortana-cero.jpg" alt="Cortana Cero" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/cortana-ss-14/84193-cortana-cero.html](https://www.readybrides.com/en/cortana-ss-14/84193-cortana-cero.html)
+<!-- break --><a href="https://www.antebrands.com/en/cortana-ss-14/84193-cortana-cero.html"><img src="//static.msromantic.com/216545/cortana-cero.jpg" alt="Cortana Cero" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cortana-ss-14/84193-cortana-cero.html"><img src="//static.msromantic.com/216543/cortana-cero.jpg" alt="Cortana Cero" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/cortana-ss-14/84193-cortana-cero.html](https://www.antebrands.com/en/cortana-ss-14/84193-cortana-cero.html)

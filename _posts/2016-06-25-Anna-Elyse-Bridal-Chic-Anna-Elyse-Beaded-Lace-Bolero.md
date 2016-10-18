@@ -9,7 +9,7 @@ tags: [Anna Elyse Bridal Chic]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/anna-elyse-bridal-chic/86817-anna-elyse-beaded-lace-bolero.html"><img src="//static.msromantic.com/225943/anna-elyse-beaded-lace-bolero.jpg" alt="Anna Elyse Beaded Lace Bolero" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/anna-elyse-bridal-chic/86817-anna-elyse-beaded-lace-bolero.html"><img src="//static.msromantic.com/225943/anna-elyse-beaded-lace-bolero.jpg" alt="Anna Elyse Beaded Lace Bolero" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/anna-elyse-bridal-chic/86817-anna-elyse-beaded-lace-bolero.html](https://www.readybrides.com/en/anna-elyse-bridal-chic/86817-anna-elyse-beaded-lace-bolero.html)
+Buy it: [https://www.antebrands.com/en/anna-elyse-bridal-chic/86817-anna-elyse-beaded-lace-bolero.html](https://www.antebrands.com/en/anna-elyse-bridal-chic/86817-anna-elyse-beaded-lace-bolero.html)

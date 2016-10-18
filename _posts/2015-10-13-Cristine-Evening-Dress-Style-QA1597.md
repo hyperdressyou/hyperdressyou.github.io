@@ -9,7 +9,7 @@ tags: [Cristine Evening Dress]
 Just **$509.99**
 ### 
 
-<a href="https://www.readybrides.com/en/cristine-evening-dress/86561-cristine-evening-dress-style-qa1597.html"><img src="//static.msromantic.com/225581/cristine-evening-dress-style-qa1597.jpg" alt="Cristine Evening Dress Style QA1597" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cristine-evening-dress/86561-cristine-evening-dress-style-qa1597.html"><img src="//static.msromantic.com/225581/cristine-evening-dress-style-qa1597.jpg" alt="Cristine Evening Dress Style QA1597" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/cristine-evening-dress/86561-cristine-evening-dress-style-qa1597.html](https://www.readybrides.com/en/cristine-evening-dress/86561-cristine-evening-dress-style-qa1597.html)
+Buy it: [https://www.antebrands.com/en/cristine-evening-dress/86561-cristine-evening-dress-style-qa1597.html](https://www.antebrands.com/en/cristine-evening-dress/86561-cristine-evening-dress-style-qa1597.html)

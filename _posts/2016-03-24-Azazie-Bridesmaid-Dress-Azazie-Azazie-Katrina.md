@@ -9,8 +9,8 @@ tags: [Azazie Bridesmaid Dress]
 Just **$159.99**
 ### 
 
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88125-azazie-azazie-katrina.html"><img src="//static.msromantic.com/229477/azazie-azazie-katrina.jpg" alt="Azazie Azazie Katrina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88125-azazie-azazie-katrina.html"><img src="//static.msromantic.com/229477/azazie-azazie-katrina.jpg" alt="Azazie Azazie Katrina" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88125-azazie-azazie-katrina.html"><img src="//static.msromantic.com/229478/azazie-azazie-katrina.jpg" alt="Azazie Azazie Katrina" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88125-azazie-azazie-katrina.html"><img src="//static.msromantic.com/229476/azazie-azazie-katrina.jpg" alt="Azazie Azazie Katrina" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/azazie-bridesmaid-dress/88125-azazie-azazie-katrina.html](https://www.readybrides.com/en/azazie-bridesmaid-dress/88125-azazie-azazie-katrina.html)
+<!-- break --><a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88125-azazie-azazie-katrina.html"><img src="//static.msromantic.com/229478/azazie-azazie-katrina.jpg" alt="Azazie Azazie Katrina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88125-azazie-azazie-katrina.html"><img src="//static.msromantic.com/229476/azazie-azazie-katrina.jpg" alt="Azazie Azazie Katrina" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/azazie-bridesmaid-dress/88125-azazie-azazie-katrina.html](https://www.antebrands.com/en/azazie-bridesmaid-dress/88125-azazie-azazie-katrina.html)

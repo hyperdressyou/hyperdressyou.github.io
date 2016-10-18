@@ -9,7 +9,7 @@ tags: [Janique Modest]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/janique-modest/88625-janique-modest-style-3445.html"><img src="//static.msromantic.com/231051/janique-modest-style-3445.jpg" alt="Janique Modest Style 3445" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/janique-modest/88625-janique-modest-style-3445.html"><img src="//static.msromantic.com/231051/janique-modest-style-3445.jpg" alt="Janique Modest Style 3445" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/janique-modest/88625-janique-modest-style-3445.html](https://www.readybrides.com/en/janique-modest/88625-janique-modest-style-3445.html)
+Buy it: [https://www.antebrands.com/en/janique-modest/88625-janique-modest-style-3445.html](https://www.antebrands.com/en/janique-modest/88625-janique-modest-style-3445.html)

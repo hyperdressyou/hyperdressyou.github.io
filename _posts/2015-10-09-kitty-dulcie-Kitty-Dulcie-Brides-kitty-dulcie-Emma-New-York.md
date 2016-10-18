@@ -9,7 +9,7 @@ tags: [kitty & dulcie Kitty & Dulcie Brides]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87958-kitty-dulcie-emma-new-york.html"><img src="//static.msromantic.com/228983/kitty-dulcie-emma-new-york.jpg" alt="kitty & dulcie Emma (New York)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87958-kitty-dulcie-emma-new-york.html"><img src="//static.msromantic.com/228983/kitty-dulcie-emma-new-york.jpg" alt="kitty & dulcie Emma (New York)" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87958-kitty-dulcie-emma-new-york.html](https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87958-kitty-dulcie-emma-new-york.html)
+Buy it: [https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87958-kitty-dulcie-emma-new-york.html](https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87958-kitty-dulcie-emma-new-york.html)

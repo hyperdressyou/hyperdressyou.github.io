@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$469.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/84017-yumi-katsura-couture-altair.html"><img src="//static.msromantic.com/215720/yumi-katsura-couture-altair.jpg" alt="Yumi Katsura Couture Altair" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/84017-yumi-katsura-couture-altair.html"><img src="//static.msromantic.com/215720/yumi-katsura-couture-altair.jpg" alt="Yumi Katsura Couture Altair" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/84017-yumi-katsura-couture-altair.html](https://www.readybrides.com/en/yumi-katsura-couture/84017-yumi-katsura-couture-altair.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/84017-yumi-katsura-couture-altair.html](https://www.antebrands.com/en/yumi-katsura-couture/84017-yumi-katsura-couture-altair.html)

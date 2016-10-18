@@ -9,7 +9,7 @@ tags: [Cecilia Yau Cocktail Dress]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/cecilia-yau-cocktail-dress/83865-cecilia-yau-imagefum.html"><img src="//static.msromantic.com/215315/cecilia-yau-imagefum.jpg" alt="Cecilia Yau imagefum" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cecilia-yau-cocktail-dress/83865-cecilia-yau-imagefum.html"><img src="//static.msromantic.com/215315/cecilia-yau-imagefum.jpg" alt="Cecilia Yau imagefum" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/cecilia-yau-cocktail-dress/83865-cecilia-yau-imagefum.html](https://www.readybrides.com/en/cecilia-yau-cocktail-dress/83865-cecilia-yau-imagefum.html)
+Buy it: [https://www.antebrands.com/en/cecilia-yau-cocktail-dress/83865-cecilia-yau-imagefum.html](https://www.antebrands.com/en/cecilia-yau-cocktail-dress/83865-cecilia-yau-imagefum.html)

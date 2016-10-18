@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85120-les-mariees-de-provence-verveine.html"><img src="//static.msromantic.com/223075/les-mariees-de-provence-verveine.jpg" alt="Les Mariées de Provence VERVEINE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85120-les-mariees-de-provence-verveine.html"><img src="//static.msromantic.com/223075/les-mariees-de-provence-verveine.jpg" alt="Les Mariées de Provence VERVEINE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85120-les-mariees-de-provence-verveine.html](https://www.readybrides.com/en/les-mariees-de-provence/85120-les-mariees-de-provence-verveine.html)
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85120-les-mariees-de-provence-verveine.html](https://www.antebrands.com/en/les-mariees-de-provence/85120-les-mariees-de-provence-verveine.html)

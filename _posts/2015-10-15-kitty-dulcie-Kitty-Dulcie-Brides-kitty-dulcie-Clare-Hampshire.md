@@ -9,7 +9,7 @@ tags: [kitty & dulcie Kitty & Dulcie Brides]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87964-kitty-dulcie-clare-hampshire.html"><img src="//static.msromantic.com/228989/kitty-dulcie-clare-hampshire.jpg" alt="kitty & dulcie Clare (Hampshire)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87964-kitty-dulcie-clare-hampshire.html"><img src="//static.msromantic.com/228989/kitty-dulcie-clare-hampshire.jpg" alt="kitty & dulcie Clare (Hampshire)" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87964-kitty-dulcie-clare-hampshire.html](https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87964-kitty-dulcie-clare-hampshire.html)
+Buy it: [https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87964-kitty-dulcie-clare-hampshire.html](https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87964-kitty-dulcie-clare-hampshire.html)

@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$204.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89283-shop-joielle-sweetheart-chiffon-dress-with-ruched-bodice.html"><img src="//static.msromantic.com/232430/shop-joielle-sweetheart-chiffon-dress-with-ruched-bodice.jpg" alt="Shop Joielle Sweetheart Chiffon Dress with Ruched Bodice" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89283-shop-joielle-sweetheart-chiffon-dress-with-ruched-bodice.html"><img src="//static.msromantic.com/232430/shop-joielle-sweetheart-chiffon-dress-with-ruched-bodice.jpg" alt="Shop Joielle Sweetheart Chiffon Dress with Ruched Bodice" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89283-shop-joielle-sweetheart-chiffon-dress-with-ruched-bodice.html](https://www.readybrides.com/en/shop-joielle-women/89283-shop-joielle-sweetheart-chiffon-dress-with-ruched-bodice.html)
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89283-shop-joielle-sweetheart-chiffon-dress-with-ruched-bodice.html](https://www.antebrands.com/en/shop-joielle-women/89283-shop-joielle-sweetheart-chiffon-dress-with-ruched-bodice.html)

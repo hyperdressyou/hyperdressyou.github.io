@@ -9,7 +9,7 @@ tags: [Luccilu Long Dresses]
 Just **$429.99**
 ### 
 
-<a href="https://www.readybrides.com/en/luccilu-long-dresses/89966-luccilu-lucci-lu-style-8095.html"><img src="//static.msromantic.com/234270/luccilu-lucci-lu-style-8095.jpg" alt="Luccilu LUCCI LU style 8095" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/luccilu-long-dresses/89966-luccilu-lucci-lu-style-8095.html"><img src="//static.msromantic.com/234270/luccilu-lucci-lu-style-8095.jpg" alt="Luccilu LUCCI LU style 8095" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/luccilu-long-dresses/89966-luccilu-lucci-lu-style-8095.html](https://www.readybrides.com/en/luccilu-long-dresses/89966-luccilu-lucci-lu-style-8095.html)
+Buy it: [https://www.antebrands.com/en/luccilu-long-dresses/89966-luccilu-lucci-lu-style-8095.html](https://www.antebrands.com/en/luccilu-long-dresses/89966-luccilu-lucci-lu-style-8095.html)

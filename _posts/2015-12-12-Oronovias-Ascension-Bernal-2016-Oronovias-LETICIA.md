@@ -9,7 +9,7 @@ tags: [Oronovias Ascension Bernal 2016]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/oronovias-ascension-bernal-2016/85220-oronovias-leticia.html"><img src="//static.msromantic.com/223275/oronovias-leticia.jpg" alt="Oronovias LETICIA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/oronovias-ascension-bernal-2016/85220-oronovias-leticia.html"><img src="//static.msromantic.com/223275/oronovias-leticia.jpg" alt="Oronovias LETICIA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/oronovias-ascension-bernal-2016/85220-oronovias-leticia.html"><img src="//static.msromantic.com/223274/oronovias-leticia.jpg" alt="Oronovias LETICIA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/oronovias-ascension-bernal-2016/85220-oronovias-leticia.html](https://www.readybrides.com/en/oronovias-ascension-bernal-2016/85220-oronovias-leticia.html)
+<!-- break --><a href="https://www.antebrands.com/en/oronovias-ascension-bernal-2016/85220-oronovias-leticia.html"><img src="//static.msromantic.com/223274/oronovias-leticia.jpg" alt="Oronovias LETICIA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/oronovias-ascension-bernal-2016/85220-oronovias-leticia.html](https://www.antebrands.com/en/oronovias-ascension-bernal-2016/85220-oronovias-leticia.html)

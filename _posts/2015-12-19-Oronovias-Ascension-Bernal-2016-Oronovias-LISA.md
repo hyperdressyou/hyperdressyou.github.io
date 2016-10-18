@@ -9,7 +9,7 @@ tags: [Oronovias Ascension Bernal 2016]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/oronovias-ascension-bernal-2016/85227-oronovias-lisa.html"><img src="//static.msromantic.com/223289/oronovias-lisa.jpg" alt="Oronovias LISA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/oronovias-ascension-bernal-2016/85227-oronovias-lisa.html"><img src="//static.msromantic.com/223289/oronovias-lisa.jpg" alt="Oronovias LISA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/oronovias-ascension-bernal-2016/85227-oronovias-lisa.html"><img src="//static.msromantic.com/223288/oronovias-lisa.jpg" alt="Oronovias LISA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/oronovias-ascension-bernal-2016/85227-oronovias-lisa.html](https://www.readybrides.com/en/oronovias-ascension-bernal-2016/85227-oronovias-lisa.html)
+<!-- break --><a href="https://www.antebrands.com/en/oronovias-ascension-bernal-2016/85227-oronovias-lisa.html"><img src="//static.msromantic.com/223288/oronovias-lisa.jpg" alt="Oronovias LISA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/oronovias-ascension-bernal-2016/85227-oronovias-lisa.html](https://www.antebrands.com/en/oronovias-ascension-bernal-2016/85227-oronovias-lisa.html)

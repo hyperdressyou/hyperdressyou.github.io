@@ -9,7 +9,7 @@ tags: [kitty & dulcie Kitty & Dulcie Brides]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87923-kitty-dulcie-zaneta-czech-republic.html"><img src="//static.msromantic.com/228948/kitty-dulcie-zaneta-czech-republic.jpg" alt="kitty & dulcie Zaneta (Czech Republic)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87923-kitty-dulcie-zaneta-czech-republic.html"><img src="//static.msromantic.com/228948/kitty-dulcie-zaneta-czech-republic.jpg" alt="kitty & dulcie Zaneta (Czech Republic)" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87923-kitty-dulcie-zaneta-czech-republic.html](https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87923-kitty-dulcie-zaneta-czech-republic.html)
+Buy it: [https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87923-kitty-dulcie-zaneta-czech-republic.html](https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87923-kitty-dulcie-zaneta-czech-republic.html)

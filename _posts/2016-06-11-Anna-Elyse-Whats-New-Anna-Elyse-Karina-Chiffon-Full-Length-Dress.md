@@ -9,7 +9,7 @@ tags: [Anna Elyse Whats New]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/anna-elyse-whats-new/86803-anna-elyse-karina-chiffon-full-length-dress.html"><img src="//static.msromantic.com/225929/anna-elyse-karina-chiffon-full-length-dress.jpg" alt="Anna Elyse Karina Chiffon Full Length Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/anna-elyse-whats-new/86803-anna-elyse-karina-chiffon-full-length-dress.html"><img src="//static.msromantic.com/225929/anna-elyse-karina-chiffon-full-length-dress.jpg" alt="Anna Elyse Karina Chiffon Full Length Dress" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/anna-elyse-whats-new/86803-anna-elyse-karina-chiffon-full-length-dress.html](https://www.readybrides.com/en/anna-elyse-whats-new/86803-anna-elyse-karina-chiffon-full-length-dress.html)
+Buy it: [https://www.antebrands.com/en/anna-elyse-whats-new/86803-anna-elyse-karina-chiffon-full-length-dress.html](https://www.antebrands.com/en/anna-elyse-whats-new/86803-anna-elyse-karina-chiffon-full-length-dress.html)

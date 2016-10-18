@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85078-les-mariees-de-provence-lina.html"><img src="//static.msromantic.com/223002/les-mariees-de-provence-lina.jpg" alt="Les Mariées de Provence LINA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85078-les-mariees-de-provence-lina.html"><img src="//static.msromantic.com/223002/les-mariees-de-provence-lina.jpg" alt="Les Mariées de Provence LINA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85078-les-mariees-de-provence-lina.html](https://www.readybrides.com/en/les-mariees-de-provence/85078-les-mariees-de-provence-lina.html)
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85078-les-mariees-de-provence-lina.html](https://www.antebrands.com/en/les-mariees-de-provence/85078-les-mariees-de-provence-lina.html)

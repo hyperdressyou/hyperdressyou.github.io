@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$249.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85051-les-mariees-de-provence-constance.html"><img src="//static.msromantic.com/222947/les-mariees-de-provence-constance.jpg" alt="Les Mariées de Provence CONSTANCE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85051-les-mariees-de-provence-constance.html"><img src="//static.msromantic.com/222947/les-mariees-de-provence-constance.jpg" alt="Les Mariées de Provence CONSTANCE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85051-les-mariees-de-provence-constance.html](https://www.readybrides.com/en/les-mariees-de-provence/85051-les-mariees-de-provence-constance.html)
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85051-les-mariees-de-provence-constance.html](https://www.antebrands.com/en/les-mariees-de-provence/85051-les-mariees-de-provence-constance.html)

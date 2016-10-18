@@ -9,7 +9,7 @@ tags: [Mariasalas Novias Comunion]
 Just **$239.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mariasalas-novias-comunion/86708-mariasalas-novias-vestido-de-comunion-f707.html"><img src="//static.msromantic.com/225829/mariasalas-novias-vestido-de-comunion-f707.jpg" alt="Mariasalas Novias vestido de comunión F707" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mariasalas-novias-comunion/86708-mariasalas-novias-vestido-de-comunion-f707.html"><img src="//static.msromantic.com/225829/mariasalas-novias-vestido-de-comunion-f707.jpg" alt="Mariasalas Novias vestido de comunión F707" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/mariasalas-novias-comunion/86708-mariasalas-novias-vestido-de-comunion-f707.html](https://www.readybrides.com/en/mariasalas-novias-comunion/86708-mariasalas-novias-vestido-de-comunion-f707.html)
+Buy it: [https://www.antebrands.com/en/mariasalas-novias-comunion/86708-mariasalas-novias-vestido-de-comunion-f707.html](https://www.antebrands.com/en/mariasalas-novias-comunion/86708-mariasalas-novias-vestido-de-comunion-f707.html)

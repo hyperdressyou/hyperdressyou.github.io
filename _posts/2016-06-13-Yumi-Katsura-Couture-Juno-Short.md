@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$409.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/84003-yumi-katsura-couture-juno-short.html"><img src="//static.msromantic.com/215702/yumi-katsura-couture-juno-short.jpg" alt="Yumi Katsura Couture Juno Short" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/84003-yumi-katsura-couture-juno-short.html"><img src="//static.msromantic.com/215702/yumi-katsura-couture-juno-short.jpg" alt="Yumi Katsura Couture Juno Short" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/84003-yumi-katsura-couture-juno-short.html](https://www.readybrides.com/en/yumi-katsura-couture/84003-yumi-katsura-couture-juno-short.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/84003-yumi-katsura-couture-juno-short.html](https://www.antebrands.com/en/yumi-katsura-couture/84003-yumi-katsura-couture-juno-short.html)

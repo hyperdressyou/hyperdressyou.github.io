@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85107-les-mariees-de-provence-rose.html"><img src="//static.msromantic.com/223059/les-mariees-de-provence-rose.jpg" alt="Les Mariées de Provence ROSE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85107-les-mariees-de-provence-rose.html"><img src="//static.msromantic.com/223059/les-mariees-de-provence-rose.jpg" alt="Les Mariées de Provence ROSE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85107-les-mariees-de-provence-rose.html](https://www.readybrides.com/en/les-mariees-de-provence/85107-les-mariees-de-provence-rose.html)
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85107-les-mariees-de-provence-rose.html](https://www.antebrands.com/en/les-mariees-de-provence/85107-les-mariees-de-provence-rose.html)

@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$280.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89063-shop-joielle-rimini.html"><img src="//static.msromantic.com/231998/shop-joielle-rimini.jpg" alt="Shop Joielle Rimini" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89063-shop-joielle-rimini.html"><img src="//static.msromantic.com/231998/shop-joielle-rimini.jpg" alt="Shop Joielle Rimini" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/89063-shop-joielle-rimini.html"><img src="//static.msromantic.com/231997/shop-joielle-rimini.jpg" alt="Shop Joielle Rimini" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89063-shop-joielle-rimini.html](https://www.readybrides.com/en/shop-joielle-women/89063-shop-joielle-rimini.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/89063-shop-joielle-rimini.html"><img src="//static.msromantic.com/231997/shop-joielle-rimini.jpg" alt="Shop Joielle Rimini" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89063-shop-joielle-rimini.html](https://www.antebrands.com/en/shop-joielle-women/89063-shop-joielle-rimini.html)

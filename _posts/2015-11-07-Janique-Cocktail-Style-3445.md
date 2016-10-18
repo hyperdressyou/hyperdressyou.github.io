@@ -9,7 +9,7 @@ tags: [Janique Cocktail]
 Just **$429.99**
 ### 
 
-<a href="https://www.readybrides.com/en/janique-cocktail/88454-janique-cocktail-style-3445.html"><img src="//static.msromantic.com/230611/janique-cocktail-style-3445.jpg" alt="Janique Cocktail Style 3445" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/janique-cocktail/88454-janique-cocktail-style-3445.html"><img src="//static.msromantic.com/230611/janique-cocktail-style-3445.jpg" alt="Janique Cocktail Style 3445" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/janique-cocktail/88454-janique-cocktail-style-3445.html](https://www.readybrides.com/en/janique-cocktail/88454-janique-cocktail-style-3445.html)
+Buy it: [https://www.antebrands.com/en/janique-cocktail/88454-janique-cocktail-style-3445.html](https://www.antebrands.com/en/janique-cocktail/88454-janique-cocktail-style-3445.html)

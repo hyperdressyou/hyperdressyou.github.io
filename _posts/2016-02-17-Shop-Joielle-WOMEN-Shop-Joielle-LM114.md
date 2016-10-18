@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$158.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89023-shop-joielle-lm114.html"><img src="//static.msromantic.com/231917/shop-joielle-lm114.jpg" alt="Shop Joielle LM114" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89023-shop-joielle-lm114.html"><img src="//static.msromantic.com/231917/shop-joielle-lm114.jpg" alt="Shop Joielle LM114" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89023-shop-joielle-lm114.html](https://www.readybrides.com/en/shop-joielle-women/89023-shop-joielle-lm114.html)
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89023-shop-joielle-lm114.html](https://www.antebrands.com/en/shop-joielle-women/89023-shop-joielle-lm114.html)

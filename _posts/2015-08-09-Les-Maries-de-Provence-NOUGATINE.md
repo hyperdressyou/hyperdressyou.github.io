@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85095-les-mariees-de-provence-nougatine.html"><img src="//static.msromantic.com/223034/les-mariees-de-provence-nougatine.jpg" alt="Les Mariées de Provence NOUGATINE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85095-les-mariees-de-provence-nougatine.html"><img src="//static.msromantic.com/223034/les-mariees-de-provence-nougatine.jpg" alt="Les Mariées de Provence NOUGATINE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85095-les-mariees-de-provence-nougatine.html](https://www.readybrides.com/en/les-mariees-de-provence/85095-les-mariees-de-provence-nougatine.html)
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85095-les-mariees-de-provence-nougatine.html](https://www.antebrands.com/en/les-mariees-de-provence/85095-les-mariees-de-provence-nougatine.html)

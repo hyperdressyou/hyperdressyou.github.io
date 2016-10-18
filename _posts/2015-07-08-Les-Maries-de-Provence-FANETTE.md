@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85063-les-mariees-de-provence-fanette.html"><img src="//static.msromantic.com/222970/les-mariees-de-provence-fanette.jpg" alt="Les Mariées de Provence FANETTE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85063-les-mariees-de-provence-fanette.html"><img src="//static.msromantic.com/222970/les-mariees-de-provence-fanette.jpg" alt="Les Mariées de Provence FANETTE" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/les-mariees-de-provence/85063-les-mariees-de-provence-fanette.html"><img src="//static.msromantic.com/222969/les-mariees-de-provence-fanette.jpg" alt="Les Mariées de Provence FANETTE" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85063-les-mariees-de-provence-fanette.html](https://www.readybrides.com/en/les-mariees-de-provence/85063-les-mariees-de-provence-fanette.html)
+<!-- break --><a href="https://www.antebrands.com/en/les-mariees-de-provence/85063-les-mariees-de-provence-fanette.html"><img src="//static.msromantic.com/222969/les-mariees-de-provence-fanette.jpg" alt="Les Mariées de Provence FANETTE" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85063-les-mariees-de-provence-fanette.html](https://www.antebrands.com/en/les-mariees-de-provence/85063-les-mariees-de-provence-fanette.html)

@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$449.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83986-yumi-katsura-couture-aroha.html"><img src="//static.msromantic.com/215685/yumi-katsura-couture-aroha.jpg" alt="Yumi Katsura Couture Aroha" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83986-yumi-katsura-couture-aroha.html"><img src="//static.msromantic.com/215685/yumi-katsura-couture-aroha.jpg" alt="Yumi Katsura Couture Aroha" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83986-yumi-katsura-couture-aroha.html](https://www.readybrides.com/en/yumi-katsura-couture/83986-yumi-katsura-couture-aroha.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83986-yumi-katsura-couture-aroha.html](https://www.antebrands.com/en/yumi-katsura-couture/83986-yumi-katsura-couture-aroha.html)

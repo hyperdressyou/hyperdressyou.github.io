@@ -9,7 +9,7 @@ tags: [Mariasalas Novias Comunion]
 Just **$229.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mariasalas-novias-comunion/86699-mariasalas-novias-vestido-de-comunion-6026lm.html"><img src="//static.msromantic.com/225819/mariasalas-novias-vestido-de-comunion-6026lm.jpg" alt="Mariasalas Novias vestido de comunión 6026LM" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mariasalas-novias-comunion/86699-mariasalas-novias-vestido-de-comunion-6026lm.html"><img src="//static.msromantic.com/225819/mariasalas-novias-vestido-de-comunion-6026lm.jpg" alt="Mariasalas Novias vestido de comunión 6026LM" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/mariasalas-novias-comunion/86699-mariasalas-novias-vestido-de-comunion-6026lm.html](https://www.readybrides.com/en/mariasalas-novias-comunion/86699-mariasalas-novias-vestido-de-comunion-6026lm.html)
+Buy it: [https://www.antebrands.com/en/mariasalas-novias-comunion/86699-mariasalas-novias-vestido-de-comunion-6026lm.html](https://www.antebrands.com/en/mariasalas-novias-comunion/86699-mariasalas-novias-vestido-de-comunion-6026lm.html)

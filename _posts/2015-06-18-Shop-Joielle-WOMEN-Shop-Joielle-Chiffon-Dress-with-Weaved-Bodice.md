@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$148.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89246-shop-joielle-chiffon-dress-with-weaved-bodice.html"><img src="//static.msromantic.com/232357/shop-joielle-chiffon-dress-with-weaved-bodice.jpg" alt="Shop Joielle Chiffon Dress with Weaved Bodice" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89246-shop-joielle-chiffon-dress-with-weaved-bodice.html"><img src="//static.msromantic.com/232357/shop-joielle-chiffon-dress-with-weaved-bodice.jpg" alt="Shop Joielle Chiffon Dress with Weaved Bodice" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89246-shop-joielle-chiffon-dress-with-weaved-bodice.html](https://www.readybrides.com/en/shop-joielle-women/89246-shop-joielle-chiffon-dress-with-weaved-bodice.html)
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89246-shop-joielle-chiffon-dress-with-weaved-bodice.html](https://www.antebrands.com/en/shop-joielle-women/89246-shop-joielle-chiffon-dress-with-weaved-bodice.html)

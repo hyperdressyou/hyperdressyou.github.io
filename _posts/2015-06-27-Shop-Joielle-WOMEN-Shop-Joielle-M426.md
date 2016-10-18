@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$228.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/88788-shop-joielle-m426.html"><img src="//static.msromantic.com/231445/shop-joielle-m426.jpg" alt="Shop Joielle M426" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/88788-shop-joielle-m426.html"><img src="//static.msromantic.com/231445/shop-joielle-m426.jpg" alt="Shop Joielle M426" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/88788-shop-joielle-m426.html"><img src="//static.msromantic.com/231444/shop-joielle-m426.jpg" alt="Shop Joielle M426" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/88788-shop-joielle-m426.html](https://www.readybrides.com/en/shop-joielle-women/88788-shop-joielle-m426.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/88788-shop-joielle-m426.html"><img src="//static.msromantic.com/231444/shop-joielle-m426.jpg" alt="Shop Joielle M426" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/88788-shop-joielle-m426.html](https://www.antebrands.com/en/shop-joielle-women/88788-shop-joielle-m426.html)

@@ -9,7 +9,7 @@ tags: [Oronovias Ascension Bernal 2016]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/oronovias-ascension-bernal-2016/85219-oronovias-leonor.html"><img src="//static.msromantic.com/223273/oronovias-leonor.jpg" alt="Oronovias LEONOR" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/oronovias-ascension-bernal-2016/85219-oronovias-leonor.html"><img src="//static.msromantic.com/223273/oronovias-leonor.jpg" alt="Oronovias LEONOR" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/oronovias-ascension-bernal-2016/85219-oronovias-leonor.html"><img src="//static.msromantic.com/223272/oronovias-leonor.jpg" alt="Oronovias LEONOR" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/oronovias-ascension-bernal-2016/85219-oronovias-leonor.html](https://www.readybrides.com/en/oronovias-ascension-bernal-2016/85219-oronovias-leonor.html)
+<!-- break --><a href="https://www.antebrands.com/en/oronovias-ascension-bernal-2016/85219-oronovias-leonor.html"><img src="//static.msromantic.com/223272/oronovias-leonor.jpg" alt="Oronovias LEONOR" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/oronovias-ascension-bernal-2016/85219-oronovias-leonor.html](https://www.antebrands.com/en/oronovias-ascension-bernal-2016/85219-oronovias-leonor.html)

@@ -9,7 +9,7 @@ tags: [Tatiana Kaplun Envie Blanc]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90084-tatiana-kaplun-nerine.html"><img src="//static.msromantic.com/234454/tatiana-kaplun-nerine.jpg" alt="Tatiana Kaplun Нэринэ" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90084-tatiana-kaplun-nerine.html"><img src="//static.msromantic.com/234454/tatiana-kaplun-nerine.jpg" alt="Tatiana Kaplun Нэринэ" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90084-tatiana-kaplun-nerine.html](https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90084-tatiana-kaplun-nerine.html)
+Buy it: [https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90084-tatiana-kaplun-nerine.html](https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90084-tatiana-kaplun-nerine.html)

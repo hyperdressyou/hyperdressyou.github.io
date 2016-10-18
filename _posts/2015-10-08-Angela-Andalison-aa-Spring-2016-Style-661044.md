@@ -9,7 +9,7 @@ tags: [Angela Andalison aa Spring 2016]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/angela-andalison-aa-spring-2016/87023-angela-andalison-aa-spring-2016-style-661044.html"><img src="//static.msromantic.com/226571/angela-andalison-aa-spring-2016-style-661044.jpg" alt="Angela Andalison aa Spring 2016 Style 661044" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/angela-andalison-aa-spring-2016/87023-angela-andalison-aa-spring-2016-style-661044.html"><img src="//static.msromantic.com/226571/angela-andalison-aa-spring-2016-style-661044.jpg" alt="Angela Andalison aa Spring 2016 Style 661044" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/angela-andalison-aa-spring-2016/87023-angela-andalison-aa-spring-2016-style-661044.html](https://www.readybrides.com/en/angela-andalison-aa-spring-2016/87023-angela-andalison-aa-spring-2016-style-661044.html)
+Buy it: [https://www.antebrands.com/en/angela-andalison-aa-spring-2016/87023-angela-andalison-aa-spring-2016-style-661044.html](https://www.antebrands.com/en/angela-andalison-aa-spring-2016/87023-angela-andalison-aa-spring-2016-style-661044.html)

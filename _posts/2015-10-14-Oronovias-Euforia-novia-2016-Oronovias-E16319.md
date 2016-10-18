@@ -9,7 +9,7 @@ tags: [Oronovias Euforia novia 2016]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/oronovias-euforia-novia-2016/85161-oronovias-e16319.html"><img src="//static.msromantic.com/223156/oronovias-e16319.jpg" alt="Oronovias E16319" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/oronovias-euforia-novia-2016/85161-oronovias-e16319.html"><img src="//static.msromantic.com/223156/oronovias-e16319.jpg" alt="Oronovias E16319" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/oronovias-euforia-novia-2016/85161-oronovias-e16319.html](https://www.readybrides.com/en/oronovias-euforia-novia-2016/85161-oronovias-e16319.html)
+Buy it: [https://www.antebrands.com/en/oronovias-euforia-novia-2016/85161-oronovias-e16319.html](https://www.antebrands.com/en/oronovias-euforia-novia-2016/85161-oronovias-e16319.html)

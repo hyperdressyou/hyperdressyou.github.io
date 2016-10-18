@@ -9,7 +9,7 @@ tags: [Cortana SS 12]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/cortana-ss-12/84233-cortana-ss12-style-7.html"><img src="//static.msromantic.com/216612/cortana-ss12-style-7.jpg" alt="Cortana SS12 Style  7" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cortana-ss-12/84233-cortana-ss12-style-7.html"><img src="//static.msromantic.com/216612/cortana-ss12-style-7.jpg" alt="Cortana SS12 Style  7" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/cortana-ss-12/84233-cortana-ss12-style-7.html](https://www.readybrides.com/en/cortana-ss-12/84233-cortana-ss12-style-7.html)
+Buy it: [https://www.antebrands.com/en/cortana-ss-12/84233-cortana-ss12-style-7.html](https://www.antebrands.com/en/cortana-ss-12/84233-cortana-ss12-style-7.html)

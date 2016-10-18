@@ -9,7 +9,7 @@ tags: [Issue New York Cocktail Dresses]
 Just **$339.66**
 ### 
 
-<a href="https://www.readybrides.com/en/issue-new-york-cocktail-dresses/89391-issue-new-york-cocktail-dresses-style-zd0063.html"><img src="//static.msromantic.com/232643/issue-new-york-cocktail-dresses-style-zd0063.jpg" alt="Issue New York Cocktail Dresses Style ZD0063" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/issue-new-york-cocktail-dresses/89391-issue-new-york-cocktail-dresses-style-zd0063.html"><img src="//static.msromantic.com/232643/issue-new-york-cocktail-dresses-style-zd0063.jpg" alt="Issue New York Cocktail Dresses Style ZD0063" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/issue-new-york-cocktail-dresses/89391-issue-new-york-cocktail-dresses-style-zd0063.html](https://www.readybrides.com/en/issue-new-york-cocktail-dresses/89391-issue-new-york-cocktail-dresses-style-zd0063.html)
+Buy it: [https://www.antebrands.com/en/issue-new-york-cocktail-dresses/89391-issue-new-york-cocktail-dresses-style-zd0063.html](https://www.antebrands.com/en/issue-new-york-cocktail-dresses/89391-issue-new-york-cocktail-dresses-style-zd0063.html)

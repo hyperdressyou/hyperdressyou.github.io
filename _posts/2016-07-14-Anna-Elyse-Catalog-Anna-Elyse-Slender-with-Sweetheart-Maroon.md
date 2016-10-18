@@ -9,7 +9,7 @@ tags: [Anna Elyse Catalog]
 Just **$119.00**
 ### 
 
-<a href="https://www.readybrides.com/en/anna-elyse-catalog/86836-anna-elyse-slender-with-sweetheart-maroon.html"><img src="//static.msromantic.com/225962/anna-elyse-slender-with-sweetheart-maroon.jpg" alt="Anna Elyse Slender with Sweetheart Maroon" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/anna-elyse-catalog/86836-anna-elyse-slender-with-sweetheart-maroon.html"><img src="//static.msromantic.com/225962/anna-elyse-slender-with-sweetheart-maroon.jpg" alt="Anna Elyse Slender with Sweetheart Maroon" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/anna-elyse-catalog/86836-anna-elyse-slender-with-sweetheart-maroon.html](https://www.readybrides.com/en/anna-elyse-catalog/86836-anna-elyse-slender-with-sweetheart-maroon.html)
+Buy it: [https://www.antebrands.com/en/anna-elyse-catalog/86836-anna-elyse-slender-with-sweetheart-maroon.html](https://www.antebrands.com/en/anna-elyse-catalog/86836-anna-elyse-slender-with-sweetheart-maroon.html)

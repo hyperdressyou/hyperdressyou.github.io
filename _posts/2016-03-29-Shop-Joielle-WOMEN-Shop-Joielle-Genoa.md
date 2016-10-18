@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$250.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89064-shop-joielle-genoa.html"><img src="//static.msromantic.com/232000/shop-joielle-genoa.jpg" alt="Shop Joielle Genoa" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89064-shop-joielle-genoa.html"><img src="//static.msromantic.com/232000/shop-joielle-genoa.jpg" alt="Shop Joielle Genoa" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/89064-shop-joielle-genoa.html"><img src="//static.msromantic.com/231999/shop-joielle-genoa.jpg" alt="Shop Joielle Genoa" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89064-shop-joielle-genoa.html](https://www.readybrides.com/en/shop-joielle-women/89064-shop-joielle-genoa.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/89064-shop-joielle-genoa.html"><img src="//static.msromantic.com/231999/shop-joielle-genoa.jpg" alt="Shop Joielle Genoa" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89064-shop-joielle-genoa.html](https://www.antebrands.com/en/shop-joielle-women/89064-shop-joielle-genoa.html)

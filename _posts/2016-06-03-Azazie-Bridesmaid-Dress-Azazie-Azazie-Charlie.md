@@ -9,8 +9,8 @@ tags: [Azazie Bridesmaid Dress]
 Just **$149.99**
 ### 
 
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88196-azazie-azazie-charlie.html"><img src="//static.msromantic.com/229704/azazie-azazie-charlie.jpg" alt="Azazie Azazie Charlie" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88196-azazie-azazie-charlie.html"><img src="//static.msromantic.com/229704/azazie-azazie-charlie.jpg" alt="Azazie Azazie Charlie" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88196-azazie-azazie-charlie.html"><img src="//static.msromantic.com/229705/azazie-azazie-charlie.jpg" alt="Azazie Azazie Charlie" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88196-azazie-azazie-charlie.html"><img src="//static.msromantic.com/229703/azazie-azazie-charlie.jpg" alt="Azazie Azazie Charlie" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/azazie-bridesmaid-dress/88196-azazie-azazie-charlie.html](https://www.readybrides.com/en/azazie-bridesmaid-dress/88196-azazie-azazie-charlie.html)
+<!-- break --><a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88196-azazie-azazie-charlie.html"><img src="//static.msromantic.com/229705/azazie-azazie-charlie.jpg" alt="Azazie Azazie Charlie" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88196-azazie-azazie-charlie.html"><img src="//static.msromantic.com/229703/azazie-azazie-charlie.jpg" alt="Azazie Azazie Charlie" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/azazie-bridesmaid-dress/88196-azazie-azazie-charlie.html](https://www.antebrands.com/en/azazie-bridesmaid-dress/88196-azazie-azazie-charlie.html)

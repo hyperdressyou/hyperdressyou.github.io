@@ -9,8 +9,8 @@ tags: [Azazie Bridesmaid Dress]
 Just **$169.99**
 ### 
 
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88154-azazie-azazie-kaiya.html"><img src="//static.msromantic.com/229572/azazie-azazie-kaiya.jpg" alt="Azazie Azazie Kaiya" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88154-azazie-azazie-kaiya.html"><img src="//static.msromantic.com/229572/azazie-azazie-kaiya.jpg" alt="Azazie Azazie Kaiya" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88154-azazie-azazie-kaiya.html"><img src="//static.msromantic.com/229573/azazie-azazie-kaiya.jpg" alt="Azazie Azazie Kaiya" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88154-azazie-azazie-kaiya.html"><img src="//static.msromantic.com/229571/azazie-azazie-kaiya.jpg" alt="Azazie Azazie Kaiya" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/azazie-bridesmaid-dress/88154-azazie-azazie-kaiya.html](https://www.readybrides.com/en/azazie-bridesmaid-dress/88154-azazie-azazie-kaiya.html)
+<!-- break --><a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88154-azazie-azazie-kaiya.html"><img src="//static.msromantic.com/229573/azazie-azazie-kaiya.jpg" alt="Azazie Azazie Kaiya" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88154-azazie-azazie-kaiya.html"><img src="//static.msromantic.com/229571/azazie-azazie-kaiya.jpg" alt="Azazie Azazie Kaiya" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/azazie-bridesmaid-dress/88154-azazie-azazie-kaiya.html](https://www.antebrands.com/en/azazie-bridesmaid-dress/88154-azazie-azazie-kaiya.html)

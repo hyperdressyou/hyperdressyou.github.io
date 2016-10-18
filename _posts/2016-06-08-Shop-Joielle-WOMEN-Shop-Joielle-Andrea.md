@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$376.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89135-shop-joielle-andrea.html"><img src="//static.msromantic.com/232133/shop-joielle-andrea.jpg" alt="Shop Joielle Andrea" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89135-shop-joielle-andrea.html"><img src="//static.msromantic.com/232133/shop-joielle-andrea.jpg" alt="Shop Joielle Andrea" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/89135-shop-joielle-andrea.html"><img src="//static.msromantic.com/232132/shop-joielle-andrea.jpg" alt="Shop Joielle Andrea" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89135-shop-joielle-andrea.html](https://www.readybrides.com/en/shop-joielle-women/89135-shop-joielle-andrea.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/89135-shop-joielle-andrea.html"><img src="//static.msromantic.com/232132/shop-joielle-andrea.jpg" alt="Shop Joielle Andrea" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89135-shop-joielle-andrea.html](https://www.antebrands.com/en/shop-joielle-women/89135-shop-joielle-andrea.html)

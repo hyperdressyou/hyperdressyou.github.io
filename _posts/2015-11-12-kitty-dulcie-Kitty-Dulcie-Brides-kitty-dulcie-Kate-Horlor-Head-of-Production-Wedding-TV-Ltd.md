@@ -9,7 +9,7 @@ tags: [kitty & dulcie Kitty & Dulcie Brides]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87992-kitty-dulcie-kate-horlor-head-of-production-wedding-tv-ltd.html"><img src="//static.msromantic.com/229017/kitty-dulcie-kate-horlor-head-of-production-wedding-tv-ltd.jpg" alt="kitty & dulcie Kate Horlor, Head of Production, Wedding TV Ltd" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87992-kitty-dulcie-kate-horlor-head-of-production-wedding-tv-ltd.html"><img src="//static.msromantic.com/229017/kitty-dulcie-kate-horlor-head-of-production-wedding-tv-ltd.jpg" alt="kitty & dulcie Kate Horlor, Head of Production, Wedding TV Ltd" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87992-kitty-dulcie-kate-horlor-head-of-production-wedding-tv-ltd.html](https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87992-kitty-dulcie-kate-horlor-head-of-production-wedding-tv-ltd.html)
+Buy it: [https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87992-kitty-dulcie-kate-horlor-head-of-production-wedding-tv-ltd.html](https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87992-kitty-dulcie-kate-horlor-head-of-production-wedding-tv-ltd.html)

@@ -9,11 +9,11 @@ tags: [Janique Proms Special]
 Just **$409.99**
 ### 
 
-<a href="https://www.readybrides.com/en/janique-proms-special/88436-janique-proms-special-style-1612.html"><img src="//static.msromantic.com/230571/janique-proms-special-style-1612.jpg" alt="Janique Proms Special Style 1612" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/janique-proms-special/88436-janique-proms-special-style-1612.html"><img src="//static.msromantic.com/230571/janique-proms-special-style-1612.jpg" alt="Janique Proms Special Style 1612" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/janique-proms-special/88436-janique-proms-special-style-1612.html"><img src="//static.msromantic.com/230572/janique-proms-special-style-1612.jpg" alt="Janique Proms Special Style 1612" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/janique-proms-special/88436-janique-proms-special-style-1612.html"><img src="//static.msromantic.com/230573/janique-proms-special-style-1612.jpg" alt="Janique Proms Special Style 1612" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/janique-proms-special/88436-janique-proms-special-style-1612.html"><img src="//static.msromantic.com/230574/janique-proms-special-style-1612.jpg" alt="Janique Proms Special Style 1612" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/janique-proms-special/88436-janique-proms-special-style-1612.html"><img src="//static.msromantic.com/230575/janique-proms-special-style-1612.jpg" alt="Janique Proms Special Style 1612" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/janique-proms-special/88436-janique-proms-special-style-1612.html"><img src="//static.msromantic.com/230570/janique-proms-special-style-1612.jpg" alt="Janique Proms Special Style 1612" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/janique-proms-special/88436-janique-proms-special-style-1612.html](https://www.readybrides.com/en/janique-proms-special/88436-janique-proms-special-style-1612.html)
+<!-- break --><a href="https://www.antebrands.com/en/janique-proms-special/88436-janique-proms-special-style-1612.html"><img src="//static.msromantic.com/230572/janique-proms-special-style-1612.jpg" alt="Janique Proms Special Style 1612" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/janique-proms-special/88436-janique-proms-special-style-1612.html"><img src="//static.msromantic.com/230573/janique-proms-special-style-1612.jpg" alt="Janique Proms Special Style 1612" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/janique-proms-special/88436-janique-proms-special-style-1612.html"><img src="//static.msromantic.com/230574/janique-proms-special-style-1612.jpg" alt="Janique Proms Special Style 1612" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/janique-proms-special/88436-janique-proms-special-style-1612.html"><img src="//static.msromantic.com/230575/janique-proms-special-style-1612.jpg" alt="Janique Proms Special Style 1612" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/janique-proms-special/88436-janique-proms-special-style-1612.html"><img src="//static.msromantic.com/230570/janique-proms-special-style-1612.jpg" alt="Janique Proms Special Style 1612" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/janique-proms-special/88436-janique-proms-special-style-1612.html](https://www.antebrands.com/en/janique-proms-special/88436-janique-proms-special-style-1612.html)

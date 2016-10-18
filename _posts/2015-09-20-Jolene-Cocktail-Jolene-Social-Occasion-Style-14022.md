@@ -9,7 +9,7 @@ tags: [Jolene Cocktail Jolene Social Occasion]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/jolene-cocktail-jolene-social-occasion/89807-jolene-cocktail-jolene-social-occasion-style-14022.html"><img src="//static.msromantic.com/233821/jolene-cocktail-jolene-social-occasion-style-14022.jpg" alt="Jolene Cocktail Jolene Social Occasion Style 14022" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jolene-cocktail-jolene-social-occasion/89807-jolene-cocktail-jolene-social-occasion-style-14022.html"><img src="//static.msromantic.com/233821/jolene-cocktail-jolene-social-occasion-style-14022.jpg" alt="Jolene Cocktail Jolene Social Occasion Style 14022" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jolene-cocktail-jolene-social-occasion/89807-jolene-cocktail-jolene-social-occasion-style-14022.html](https://www.readybrides.com/en/jolene-cocktail-jolene-social-occasion/89807-jolene-cocktail-jolene-social-occasion-style-14022.html)
+Buy it: [https://www.antebrands.com/en/jolene-cocktail-jolene-social-occasion/89807-jolene-cocktail-jolene-social-occasion-style-14022.html](https://www.antebrands.com/en/jolene-cocktail-jolene-social-occasion/89807-jolene-cocktail-jolene-social-occasion-style-14022.html)

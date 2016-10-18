@@ -9,7 +9,7 @@ tags: [Tatiana Kaplun Envie Blanc]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90076-tatiana-kaplun-zarina.html"><img src="//static.msromantic.com/234440/tatiana-kaplun-zarina.jpg" alt="Tatiana Kaplun Зарина" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90076-tatiana-kaplun-zarina.html"><img src="//static.msromantic.com/234440/tatiana-kaplun-zarina.jpg" alt="Tatiana Kaplun Зарина" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90076-tatiana-kaplun-zarina.html"><img src="//static.msromantic.com/234439/tatiana-kaplun-zarina.jpg" alt="Tatiana Kaplun Зарина" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90076-tatiana-kaplun-zarina.html](https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90076-tatiana-kaplun-zarina.html)
+<!-- break --><a href="https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90076-tatiana-kaplun-zarina.html"><img src="//static.msromantic.com/234439/tatiana-kaplun-zarina.jpg" alt="Tatiana Kaplun Зарина" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90076-tatiana-kaplun-zarina.html](https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90076-tatiana-kaplun-zarina.html)

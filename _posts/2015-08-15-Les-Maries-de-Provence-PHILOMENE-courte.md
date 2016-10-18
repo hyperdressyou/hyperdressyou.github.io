@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85101-les-mariees-de-provence-philomene-courte.html"><img src="//static.msromantic.com/223045/les-mariees-de-provence-philomene-courte.jpg" alt="Les Mariées de Provence PHILOMENE courte" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85101-les-mariees-de-provence-philomene-courte.html"><img src="//static.msromantic.com/223045/les-mariees-de-provence-philomene-courte.jpg" alt="Les Mariées de Provence PHILOMENE courte" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85101-les-mariees-de-provence-philomene-courte.html](https://www.readybrides.com/en/les-mariees-de-provence/85101-les-mariees-de-provence-philomene-courte.html)
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85101-les-mariees-de-provence-philomene-courte.html](https://www.antebrands.com/en/les-mariees-de-provence/85101-les-mariees-de-provence-philomene-courte.html)

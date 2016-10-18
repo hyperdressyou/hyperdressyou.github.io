@@ -9,7 +9,7 @@ tags: [Janique Proms Special]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/janique-proms-special/88312-janique-proms-special-style-c1493.html"><img src="//static.msromantic.com/230100/janique-proms-special-style-c1493.jpg" alt="Janique Proms Special Style C1493" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/janique-proms-special/88312-janique-proms-special-style-c1493.html"><img src="//static.msromantic.com/230100/janique-proms-special-style-c1493.jpg" alt="Janique Proms Special Style C1493" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/janique-proms-special/88312-janique-proms-special-style-c1493.html"><img src="//static.msromantic.com/230099/janique-proms-special-style-c1493.jpg" alt="Janique Proms Special Style C1493" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/janique-proms-special/88312-janique-proms-special-style-c1493.html](https://www.readybrides.com/en/janique-proms-special/88312-janique-proms-special-style-c1493.html)
+<!-- break --><a href="https://www.antebrands.com/en/janique-proms-special/88312-janique-proms-special-style-c1493.html"><img src="//static.msromantic.com/230099/janique-proms-special-style-c1493.jpg" alt="Janique Proms Special Style C1493" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/janique-proms-special/88312-janique-proms-special-style-c1493.html](https://www.antebrands.com/en/janique-proms-special/88312-janique-proms-special-style-c1493.html)

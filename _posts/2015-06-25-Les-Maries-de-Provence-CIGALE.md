@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85050-les-mariees-de-provence-cigale.html"><img src="//static.msromantic.com/222946/les-mariees-de-provence-cigale.jpg" alt="Les Mariées de Provence CIGALE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85050-les-mariees-de-provence-cigale.html"><img src="//static.msromantic.com/222946/les-mariees-de-provence-cigale.jpg" alt="Les Mariées de Provence CIGALE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85050-les-mariees-de-provence-cigale.html](https://www.readybrides.com/en/les-mariees-de-provence/85050-les-mariees-de-provence-cigale.html)
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85050-les-mariees-de-provence-cigale.html](https://www.antebrands.com/en/les-mariees-de-provence/85050-les-mariees-de-provence-cigale.html)

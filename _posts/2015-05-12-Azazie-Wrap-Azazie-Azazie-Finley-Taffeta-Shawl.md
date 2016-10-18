@@ -9,7 +9,7 @@ tags: [Azazie Wrap]
 Just **$39.99**
 ### 
 
-<a href="https://www.readybrides.com/en/azazie-wrap/88275-azazie-azazie-finley-taffeta-shawl.html"><img src="//static.msromantic.com/229952/azazie-azazie-finley-taffeta-shawl.jpg" alt="Azazie Azazie Finley Taffeta Shawl" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-wrap/88275-azazie-azazie-finley-taffeta-shawl.html"><img src="//static.msromantic.com/229952/azazie-azazie-finley-taffeta-shawl.jpg" alt="Azazie Azazie Finley Taffeta Shawl" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/azazie-wrap/88275-azazie-azazie-finley-taffeta-shawl.html](https://www.readybrides.com/en/azazie-wrap/88275-azazie-azazie-finley-taffeta-shawl.html)
+Buy it: [https://www.antebrands.com/en/azazie-wrap/88275-azazie-azazie-finley-taffeta-shawl.html](https://www.antebrands.com/en/azazie-wrap/88275-azazie-azazie-finley-taffeta-shawl.html)

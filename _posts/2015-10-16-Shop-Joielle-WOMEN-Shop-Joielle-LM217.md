@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$138.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/88899-shop-joielle-lm217.html"><img src="//static.msromantic.com/231668/shop-joielle-lm217.jpg" alt="Shop Joielle LM217" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/88899-shop-joielle-lm217.html"><img src="//static.msromantic.com/231668/shop-joielle-lm217.jpg" alt="Shop Joielle LM217" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/88899-shop-joielle-lm217.html"><img src="//static.msromantic.com/231667/shop-joielle-lm217.jpg" alt="Shop Joielle LM217" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/88899-shop-joielle-lm217.html](https://www.readybrides.com/en/shop-joielle-women/88899-shop-joielle-lm217.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/88899-shop-joielle-lm217.html"><img src="//static.msromantic.com/231667/shop-joielle-lm217.jpg" alt="Shop Joielle LM217" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/88899-shop-joielle-lm217.html](https://www.antebrands.com/en/shop-joielle-women/88899-shop-joielle-lm217.html)

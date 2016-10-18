@@ -9,7 +9,7 @@ tags: [kitty & dulcie Kitty & Dulcie Brides]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87972-kitty-dulcie-diane-dominican-republic.html"><img src="//static.msromantic.com/228997/kitty-dulcie-diane-dominican-republic.jpg" alt="kitty & dulcie Diane (Dominican Republic)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87972-kitty-dulcie-diane-dominican-republic.html"><img src="//static.msromantic.com/228997/kitty-dulcie-diane-dominican-republic.jpg" alt="kitty & dulcie Diane (Dominican Republic)" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87972-kitty-dulcie-diane-dominican-republic.html](https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87972-kitty-dulcie-diane-dominican-republic.html)
+Buy it: [https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87972-kitty-dulcie-diane-dominican-republic.html](https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87972-kitty-dulcie-diane-dominican-republic.html)

@@ -9,7 +9,7 @@ tags: [kitty & dulcie Kitty & Dulcie Brides]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87960-kitty-dulcie-gemma-london.html"><img src="//static.msromantic.com/228985/kitty-dulcie-gemma-london.jpg" alt="kitty & dulcie Gemma (London)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87960-kitty-dulcie-gemma-london.html"><img src="//static.msromantic.com/228985/kitty-dulcie-gemma-london.jpg" alt="kitty & dulcie Gemma (London)" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87960-kitty-dulcie-gemma-london.html](https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87960-kitty-dulcie-gemma-london.html)
+Buy it: [https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87960-kitty-dulcie-gemma-london.html](https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87960-kitty-dulcie-gemma-london.html)

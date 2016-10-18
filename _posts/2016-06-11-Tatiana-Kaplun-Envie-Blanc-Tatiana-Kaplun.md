@@ -9,7 +9,7 @@ tags: [Tatiana Kaplun Envie Blanc]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90072-tatiana-kaplun-aliya.html"><img src="//static.msromantic.com/234429/tatiana-kaplun-aliya.jpg" alt="Tatiana Kaplun Алия" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90072-tatiana-kaplun-aliya.html"><img src="//static.msromantic.com/234429/tatiana-kaplun-aliya.jpg" alt="Tatiana Kaplun Алия" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90072-tatiana-kaplun-aliya.html"><img src="//static.msromantic.com/234428/tatiana-kaplun-aliya.jpg" alt="Tatiana Kaplun Алия" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90072-tatiana-kaplun-aliya.html](https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90072-tatiana-kaplun-aliya.html)
+<!-- break --><a href="https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90072-tatiana-kaplun-aliya.html"><img src="//static.msromantic.com/234428/tatiana-kaplun-aliya.jpg" alt="Tatiana Kaplun Алия" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90072-tatiana-kaplun-aliya.html](https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90072-tatiana-kaplun-aliya.html)

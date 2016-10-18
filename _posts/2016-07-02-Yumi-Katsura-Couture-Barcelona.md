@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$589.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/84022-yumi-katsura-couture-barcelona.html"><img src="//static.msromantic.com/215728/yumi-katsura-couture-barcelona.jpg" alt="Yumi Katsura Couture Barcelona" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/84022-yumi-katsura-couture-barcelona.html"><img src="//static.msromantic.com/215728/yumi-katsura-couture-barcelona.jpg" alt="Yumi Katsura Couture Barcelona" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/84022-yumi-katsura-couture-barcelona.html](https://www.readybrides.com/en/yumi-katsura-couture/84022-yumi-katsura-couture-barcelona.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/84022-yumi-katsura-couture-barcelona.html](https://www.antebrands.com/en/yumi-katsura-couture/84022-yumi-katsura-couture-barcelona.html)

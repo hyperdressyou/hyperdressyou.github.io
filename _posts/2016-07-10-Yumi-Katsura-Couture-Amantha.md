@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/84030-yumi-katsura-couture-amantha.html"><img src="//static.msromantic.com/215736/yumi-katsura-couture-amantha.jpg" alt="Yumi Katsura Couture Amantha" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/84030-yumi-katsura-couture-amantha.html"><img src="//static.msromantic.com/215736/yumi-katsura-couture-amantha.jpg" alt="Yumi Katsura Couture Amantha" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/84030-yumi-katsura-couture-amantha.html](https://www.readybrides.com/en/yumi-katsura-couture/84030-yumi-katsura-couture-amantha.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/84030-yumi-katsura-couture-amantha.html](https://www.antebrands.com/en/yumi-katsura-couture/84030-yumi-katsura-couture-amantha.html)

@@ -9,7 +9,7 @@ tags: [Angela Andalison Couture Spring 2016]
 Just **$739.99**
 ### 
 
-<a href="https://www.readybrides.com/en/angela-andalison-couture-spring-2016/87010-angela-andalison-couture-spring-2016-style-861175.html"><img src="//static.msromantic.com/226524/angela-andalison-couture-spring-2016-style-861175.jpg" alt="Angela Andalison Couture Spring 2016 Style 861175" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/angela-andalison-couture-spring-2016/87010-angela-andalison-couture-spring-2016-style-861175.html"><img src="//static.msromantic.com/226524/angela-andalison-couture-spring-2016-style-861175.jpg" alt="Angela Andalison Couture Spring 2016 Style 861175" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/angela-andalison-couture-spring-2016/87010-angela-andalison-couture-spring-2016-style-861175.html](https://www.readybrides.com/en/angela-andalison-couture-spring-2016/87010-angela-andalison-couture-spring-2016-style-861175.html)
+Buy it: [https://www.antebrands.com/en/angela-andalison-couture-spring-2016/87010-angela-andalison-couture-spring-2016-style-861175.html](https://www.antebrands.com/en/angela-andalison-couture-spring-2016/87010-angela-andalison-couture-spring-2016-style-861175.html)

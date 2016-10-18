@@ -9,7 +9,7 @@ tags: [kitty & dulcie Kitty & Dulcie Brides]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87918-kitty-dulcie-becky-somerset.html"><img src="//static.msromantic.com/228943/kitty-dulcie-becky-somerset.jpg" alt="kitty & dulcie Becky (Somerset)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87918-kitty-dulcie-becky-somerset.html"><img src="//static.msromantic.com/228943/kitty-dulcie-becky-somerset.jpg" alt="kitty & dulcie Becky (Somerset)" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87918-kitty-dulcie-becky-somerset.html](https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87918-kitty-dulcie-becky-somerset.html)
+Buy it: [https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87918-kitty-dulcie-becky-somerset.html](https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87918-kitty-dulcie-becky-somerset.html)

@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$284.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89071-shop-joielle-krizia.html"><img src="//static.msromantic.com/232013/shop-joielle-krizia.jpg" alt="Shop Joielle Krizia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89071-shop-joielle-krizia.html"><img src="//static.msromantic.com/232013/shop-joielle-krizia.jpg" alt="Shop Joielle Krizia" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/89071-shop-joielle-krizia.html"><img src="//static.msromantic.com/232012/shop-joielle-krizia.jpg" alt="Shop Joielle Krizia" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89071-shop-joielle-krizia.html](https://www.readybrides.com/en/shop-joielle-women/89071-shop-joielle-krizia.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/89071-shop-joielle-krizia.html"><img src="//static.msromantic.com/232012/shop-joielle-krizia.jpg" alt="Shop Joielle Krizia" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89071-shop-joielle-krizia.html](https://www.antebrands.com/en/shop-joielle-women/89071-shop-joielle-krizia.html)

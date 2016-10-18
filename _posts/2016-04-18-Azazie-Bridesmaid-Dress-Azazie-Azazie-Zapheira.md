@@ -9,8 +9,8 @@ tags: [Azazie Bridesmaid Dress]
 Just **$159.99**
 ### 
 
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88150-azazie-azazie-zapheira.html"><img src="//static.msromantic.com/229560/azazie-azazie-zapheira.jpg" alt="Azazie Azazie Zapheira" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88150-azazie-azazie-zapheira.html"><img src="//static.msromantic.com/229560/azazie-azazie-zapheira.jpg" alt="Azazie Azazie Zapheira" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88150-azazie-azazie-zapheira.html"><img src="//static.msromantic.com/229561/azazie-azazie-zapheira.jpg" alt="Azazie Azazie Zapheira" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88150-azazie-azazie-zapheira.html"><img src="//static.msromantic.com/229559/azazie-azazie-zapheira.jpg" alt="Azazie Azazie Zapheira" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/azazie-bridesmaid-dress/88150-azazie-azazie-zapheira.html](https://www.readybrides.com/en/azazie-bridesmaid-dress/88150-azazie-azazie-zapheira.html)
+<!-- break --><a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88150-azazie-azazie-zapheira.html"><img src="//static.msromantic.com/229561/azazie-azazie-zapheira.jpg" alt="Azazie Azazie Zapheira" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88150-azazie-azazie-zapheira.html"><img src="//static.msromantic.com/229559/azazie-azazie-zapheira.jpg" alt="Azazie Azazie Zapheira" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/azazie-bridesmaid-dress/88150-azazie-azazie-zapheira.html](https://www.antebrands.com/en/azazie-bridesmaid-dress/88150-azazie-azazie-zapheira.html)

@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85113-les-mariees-de-provence-senanque.html"><img src="//static.msromantic.com/223066/les-mariees-de-provence-senanque.jpg" alt="Les Mariées de Provence SENANQUE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85113-les-mariees-de-provence-senanque.html"><img src="//static.msromantic.com/223066/les-mariees-de-provence-senanque.jpg" alt="Les Mariées de Provence SENANQUE" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/les-mariees-de-provence/85113-les-mariees-de-provence-senanque.html"><img src="//static.msromantic.com/223065/les-mariees-de-provence-senanque.jpg" alt="Les Mariées de Provence SENANQUE" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85113-les-mariees-de-provence-senanque.html](https://www.readybrides.com/en/les-mariees-de-provence/85113-les-mariees-de-provence-senanque.html)
+<!-- break --><a href="https://www.antebrands.com/en/les-mariees-de-provence/85113-les-mariees-de-provence-senanque.html"><img src="//static.msromantic.com/223065/les-mariees-de-provence-senanque.jpg" alt="Les Mariées de Provence SENANQUE" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85113-les-mariees-de-provence-senanque.html](https://www.antebrands.com/en/les-mariees-de-provence/85113-les-mariees-de-provence-senanque.html)

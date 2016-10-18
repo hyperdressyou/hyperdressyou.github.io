@@ -9,7 +9,7 @@ tags: [Envious Couture Dresses]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/envious-couture-dresses/86736-envious-couture-img1989.html"><img src="//static.msromantic.com/225862/envious-couture-img1989.jpg" alt="Envious Couture IMG_1989" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/envious-couture-dresses/86736-envious-couture-img1989.html"><img src="//static.msromantic.com/225862/envious-couture-img1989.jpg" alt="Envious Couture IMG_1989" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/envious-couture-dresses/86736-envious-couture-img1989.html](https://www.readybrides.com/en/envious-couture-dresses/86736-envious-couture-img1989.html)
+Buy it: [https://www.antebrands.com/en/envious-couture-dresses/86736-envious-couture-img1989.html](https://www.antebrands.com/en/envious-couture-dresses/86736-envious-couture-img1989.html)

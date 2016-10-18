@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$489.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/84026-yumi-katsura-couture-vienna.html"><img src="//static.msromantic.com/215732/yumi-katsura-couture-vienna.jpg" alt="Yumi Katsura Couture Vienna" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/84026-yumi-katsura-couture-vienna.html"><img src="//static.msromantic.com/215732/yumi-katsura-couture-vienna.jpg" alt="Yumi Katsura Couture Vienna" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/84026-yumi-katsura-couture-vienna.html](https://www.readybrides.com/en/yumi-katsura-couture/84026-yumi-katsura-couture-vienna.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/84026-yumi-katsura-couture-vienna.html](https://www.antebrands.com/en/yumi-katsura-couture/84026-yumi-katsura-couture-vienna.html)

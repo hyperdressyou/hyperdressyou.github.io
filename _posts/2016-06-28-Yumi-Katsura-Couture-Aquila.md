@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$589.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/84018-yumi-katsura-couture-aquila.html"><img src="//static.msromantic.com/215722/yumi-katsura-couture-aquila.jpg" alt="Yumi Katsura Couture Aquila" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/84018-yumi-katsura-couture-aquila.html"><img src="//static.msromantic.com/215722/yumi-katsura-couture-aquila.jpg" alt="Yumi Katsura Couture Aquila" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/yumi-katsura-couture/84018-yumi-katsura-couture-aquila.html"><img src="//static.msromantic.com/215721/yumi-katsura-couture-aquila.jpg" alt="Yumi Katsura Couture Aquila" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/84018-yumi-katsura-couture-aquila.html](https://www.readybrides.com/en/yumi-katsura-couture/84018-yumi-katsura-couture-aquila.html)
+<!-- break --><a href="https://www.antebrands.com/en/yumi-katsura-couture/84018-yumi-katsura-couture-aquila.html"><img src="//static.msromantic.com/215721/yumi-katsura-couture-aquila.jpg" alt="Yumi Katsura Couture Aquila" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/84018-yumi-katsura-couture-aquila.html](https://www.antebrands.com/en/yumi-katsura-couture/84018-yumi-katsura-couture-aquila.html)

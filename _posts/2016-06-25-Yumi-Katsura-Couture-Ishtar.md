@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$429.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/84015-yumi-katsura-couture-ishtar.html"><img src="//static.msromantic.com/215718/yumi-katsura-couture-ishtar.jpg" alt="Yumi Katsura Couture Ishtar" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/84015-yumi-katsura-couture-ishtar.html"><img src="//static.msromantic.com/215718/yumi-katsura-couture-ishtar.jpg" alt="Yumi Katsura Couture Ishtar" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/84015-yumi-katsura-couture-ishtar.html](https://www.readybrides.com/en/yumi-katsura-couture/84015-yumi-katsura-couture-ishtar.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/84015-yumi-katsura-couture-ishtar.html](https://www.antebrands.com/en/yumi-katsura-couture/84015-yumi-katsura-couture-ishtar.html)

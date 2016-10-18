@@ -9,7 +9,7 @@ tags: [Envious Couture Dresses]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/envious-couture-dresses/86782-envious-couture-kathy-hilton.html"><img src="//static.msromantic.com/225908/envious-couture-kathy-hilton.jpg" alt="Envious Couture kathy hilton" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/envious-couture-dresses/86782-envious-couture-kathy-hilton.html"><img src="//static.msromantic.com/225908/envious-couture-kathy-hilton.jpg" alt="Envious Couture kathy hilton" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/envious-couture-dresses/86782-envious-couture-kathy-hilton.html](https://www.readybrides.com/en/envious-couture-dresses/86782-envious-couture-kathy-hilton.html)
+Buy it: [https://www.antebrands.com/en/envious-couture-dresses/86782-envious-couture-kathy-hilton.html](https://www.antebrands.com/en/envious-couture-dresses/86782-envious-couture-kathy-hilton.html)

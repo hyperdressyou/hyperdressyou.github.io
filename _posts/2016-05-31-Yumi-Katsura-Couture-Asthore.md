@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$499.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83990-yumi-katsura-couture-asthore.html"><img src="//static.msromantic.com/215689/yumi-katsura-couture-asthore.jpg" alt="Yumi Katsura Couture Asthore" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83990-yumi-katsura-couture-asthore.html"><img src="//static.msromantic.com/215689/yumi-katsura-couture-asthore.jpg" alt="Yumi Katsura Couture Asthore" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83990-yumi-katsura-couture-asthore.html](https://www.readybrides.com/en/yumi-katsura-couture/83990-yumi-katsura-couture-asthore.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83990-yumi-katsura-couture-asthore.html](https://www.antebrands.com/en/yumi-katsura-couture/83990-yumi-katsura-couture-asthore.html)

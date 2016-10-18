@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85075-les-mariees-de-provence-lavande.html"><img src="//static.msromantic.com/222997/les-mariees-de-provence-lavande.jpg" alt="Les Mariées de Provence LAVANDE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85075-les-mariees-de-provence-lavande.html"><img src="//static.msromantic.com/222997/les-mariees-de-provence-lavande.jpg" alt="Les Mariées de Provence LAVANDE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85075-les-mariees-de-provence-lavande.html](https://www.readybrides.com/en/les-mariees-de-provence/85075-les-mariees-de-provence-lavande.html)
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85075-les-mariees-de-provence-lavande.html](https://www.antebrands.com/en/les-mariees-de-provence/85075-les-mariees-de-provence-lavande.html)

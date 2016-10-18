@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83965-yumi-katsura-couture-belinda.html"><img src="//static.msromantic.com/215663/yumi-katsura-couture-belinda.jpg" alt="Yumi Katsura Couture Belinda" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83965-yumi-katsura-couture-belinda.html"><img src="//static.msromantic.com/215663/yumi-katsura-couture-belinda.jpg" alt="Yumi Katsura Couture Belinda" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/yumi-katsura-couture/83965-yumi-katsura-couture-belinda.html"><img src="//static.msromantic.com/215662/yumi-katsura-couture-belinda.jpg" alt="Yumi Katsura Couture Belinda" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83965-yumi-katsura-couture-belinda.html](https://www.readybrides.com/en/yumi-katsura-couture/83965-yumi-katsura-couture-belinda.html)
+<!-- break --><a href="https://www.antebrands.com/en/yumi-katsura-couture/83965-yumi-katsura-couture-belinda.html"><img src="//static.msromantic.com/215662/yumi-katsura-couture-belinda.jpg" alt="Yumi Katsura Couture Belinda" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83965-yumi-katsura-couture-belinda.html](https://www.antebrands.com/en/yumi-katsura-couture/83965-yumi-katsura-couture-belinda.html)

@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83985-yumi-katsura-couture-arete.html"><img src="//static.msromantic.com/215684/yumi-katsura-couture-arete.jpg" alt="Yumi Katsura Couture Arete" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83985-yumi-katsura-couture-arete.html"><img src="//static.msromantic.com/215684/yumi-katsura-couture-arete.jpg" alt="Yumi Katsura Couture Arete" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83985-yumi-katsura-couture-arete.html](https://www.readybrides.com/en/yumi-katsura-couture/83985-yumi-katsura-couture-arete.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83985-yumi-katsura-couture-arete.html](https://www.antebrands.com/en/yumi-katsura-couture/83985-yumi-katsura-couture-arete.html)

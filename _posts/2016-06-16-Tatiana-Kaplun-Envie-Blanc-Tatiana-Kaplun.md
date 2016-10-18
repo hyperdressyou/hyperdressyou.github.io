@@ -9,7 +9,7 @@ tags: [Tatiana Kaplun Envie Blanc]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90077-tatiana-kaplun-lejla.html"><img src="//static.msromantic.com/234442/tatiana-kaplun-lejla.jpg" alt="Tatiana Kaplun Лейла" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90077-tatiana-kaplun-lejla.html"><img src="//static.msromantic.com/234442/tatiana-kaplun-lejla.jpg" alt="Tatiana Kaplun Лейла" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90077-tatiana-kaplun-lejla.html"><img src="//static.msromantic.com/234441/tatiana-kaplun-lejla.jpg" alt="Tatiana Kaplun Лейла" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90077-tatiana-kaplun-lejla.html](https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90077-tatiana-kaplun-lejla.html)
+<!-- break --><a href="https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90077-tatiana-kaplun-lejla.html"><img src="//static.msromantic.com/234441/tatiana-kaplun-lejla.jpg" alt="Tatiana Kaplun Лейла" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90077-tatiana-kaplun-lejla.html](https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90077-tatiana-kaplun-lejla.html)

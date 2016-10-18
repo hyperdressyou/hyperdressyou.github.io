@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$459.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83962-yumi-katsura-couture-behati.html"><img src="//static.msromantic.com/215658/yumi-katsura-couture-behati.jpg" alt="Yumi Katsura Couture Behati" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83962-yumi-katsura-couture-behati.html"><img src="//static.msromantic.com/215658/yumi-katsura-couture-behati.jpg" alt="Yumi Katsura Couture Behati" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83962-yumi-katsura-couture-behati.html](https://www.readybrides.com/en/yumi-katsura-couture/83962-yumi-katsura-couture-behati.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83962-yumi-katsura-couture-behati.html](https://www.antebrands.com/en/yumi-katsura-couture/83962-yumi-katsura-couture-behati.html)

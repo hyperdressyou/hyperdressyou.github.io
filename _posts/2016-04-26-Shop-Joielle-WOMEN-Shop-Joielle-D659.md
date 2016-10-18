@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$195.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89092-shop-joielle-d659.html"><img src="//static.msromantic.com/232052/shop-joielle-d659.jpg" alt="Shop Joielle D659" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89092-shop-joielle-d659.html"><img src="//static.msromantic.com/232052/shop-joielle-d659.jpg" alt="Shop Joielle D659" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89092-shop-joielle-d659.html](https://www.readybrides.com/en/shop-joielle-women/89092-shop-joielle-d659.html)
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89092-shop-joielle-d659.html](https://www.antebrands.com/en/shop-joielle-women/89092-shop-joielle-d659.html)

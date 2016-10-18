@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$215.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89176-shop-joielle-sweetheart-dress-with-ruffled-side-slit.html"><img src="//static.msromantic.com/232213/shop-joielle-sweetheart-dress-with-ruffled-side-slit.jpg" alt="Shop Joielle Sweetheart Dress with Ruffled Side Slit" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89176-shop-joielle-sweetheart-dress-with-ruffled-side-slit.html"><img src="//static.msromantic.com/232213/shop-joielle-sweetheart-dress-with-ruffled-side-slit.jpg" alt="Shop Joielle Sweetheart Dress with Ruffled Side Slit" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/89176-shop-joielle-sweetheart-dress-with-ruffled-side-slit.html"><img src="//static.msromantic.com/232212/shop-joielle-sweetheart-dress-with-ruffled-side-slit.jpg" alt="Shop Joielle Sweetheart Dress with Ruffled Side Slit" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89176-shop-joielle-sweetheart-dress-with-ruffled-side-slit.html](https://www.readybrides.com/en/shop-joielle-women/89176-shop-joielle-sweetheart-dress-with-ruffled-side-slit.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/89176-shop-joielle-sweetheart-dress-with-ruffled-side-slit.html"><img src="//static.msromantic.com/232212/shop-joielle-sweetheart-dress-with-ruffled-side-slit.jpg" alt="Shop Joielle Sweetheart Dress with Ruffled Side Slit" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89176-shop-joielle-sweetheart-dress-with-ruffled-side-slit.html](https://www.antebrands.com/en/shop-joielle-women/89176-shop-joielle-sweetheart-dress-with-ruffled-side-slit.html)

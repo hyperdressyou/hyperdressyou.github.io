@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85079-les-mariees-de-provence-luberon.html"><img src="//static.msromantic.com/223003/les-mariees-de-provence-luberon.jpg" alt="Les Mariées de Provence LUBERON" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85079-les-mariees-de-provence-luberon.html"><img src="//static.msromantic.com/223003/les-mariees-de-provence-luberon.jpg" alt="Les Mariées de Provence LUBERON" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85079-les-mariees-de-provence-luberon.html](https://www.readybrides.com/en/les-mariees-de-provence/85079-les-mariees-de-provence-luberon.html)
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85079-les-mariees-de-provence-luberon.html](https://www.antebrands.com/en/les-mariees-de-provence/85079-les-mariees-de-provence-luberon.html)

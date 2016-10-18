@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$409.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83991-yumi-katsura-couture-aziz.html"><img src="//static.msromantic.com/215690/yumi-katsura-couture-aziz.jpg" alt="Yumi Katsura Couture Aziz" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83991-yumi-katsura-couture-aziz.html"><img src="//static.msromantic.com/215690/yumi-katsura-couture-aziz.jpg" alt="Yumi Katsura Couture Aziz" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83991-yumi-katsura-couture-aziz.html](https://www.readybrides.com/en/yumi-katsura-couture/83991-yumi-katsura-couture-aziz.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83991-yumi-katsura-couture-aziz.html](https://www.antebrands.com/en/yumi-katsura-couture/83991-yumi-katsura-couture-aziz.html)

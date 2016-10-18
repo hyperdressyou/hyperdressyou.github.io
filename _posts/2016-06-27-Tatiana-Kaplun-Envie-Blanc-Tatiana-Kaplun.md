@@ -9,7 +9,7 @@ tags: [Tatiana Kaplun Envie Blanc]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90088-tatiana-kaplun-ruffa.html"><img src="//static.msromantic.com/234463/tatiana-kaplun-ruffa.jpg" alt="Tatiana Kaplun Руффа" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90088-tatiana-kaplun-ruffa.html"><img src="//static.msromantic.com/234463/tatiana-kaplun-ruffa.jpg" alt="Tatiana Kaplun Руффа" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90088-tatiana-kaplun-ruffa.html"><img src="//static.msromantic.com/234462/tatiana-kaplun-ruffa.jpg" alt="Tatiana Kaplun Руффа" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90088-tatiana-kaplun-ruffa.html](https://www.readybrides.com/en/tatiana-kaplun-envie-blanc/90088-tatiana-kaplun-ruffa.html)
+<!-- break --><a href="https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90088-tatiana-kaplun-ruffa.html"><img src="//static.msromantic.com/234462/tatiana-kaplun-ruffa.jpg" alt="Tatiana Kaplun Руффа" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90088-tatiana-kaplun-ruffa.html](https://www.antebrands.com/en/tatiana-kaplun-envie-blanc/90088-tatiana-kaplun-ruffa.html)

@@ -9,7 +9,7 @@ tags: [Envious Couture Dresses]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/envious-couture-dresses/86770-envious-couture-french-con-berry-panaroma.html"><img src="//static.msromantic.com/225896/envious-couture-french-con-berry-panaroma.jpg" alt="Envious Couture french con berry panaroma" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/envious-couture-dresses/86770-envious-couture-french-con-berry-panaroma.html"><img src="//static.msromantic.com/225896/envious-couture-french-con-berry-panaroma.jpg" alt="Envious Couture french con berry panaroma" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/envious-couture-dresses/86770-envious-couture-french-con-berry-panaroma.html](https://www.readybrides.com/en/envious-couture-dresses/86770-envious-couture-french-con-berry-panaroma.html)
+Buy it: [https://www.antebrands.com/en/envious-couture-dresses/86770-envious-couture-french-con-berry-panaroma.html](https://www.antebrands.com/en/envious-couture-dresses/86770-envious-couture-french-con-berry-panaroma.html)

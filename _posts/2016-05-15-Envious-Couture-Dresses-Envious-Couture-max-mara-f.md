@@ -9,7 +9,7 @@ tags: [Envious Couture Dresses]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/envious-couture-dresses/86776-envious-couture-max-mara-f.html"><img src="//static.msromantic.com/225902/envious-couture-max-mara-f.jpg" alt="Envious Couture max mara f" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/envious-couture-dresses/86776-envious-couture-max-mara-f.html"><img src="//static.msromantic.com/225902/envious-couture-max-mara-f.jpg" alt="Envious Couture max mara f" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/envious-couture-dresses/86776-envious-couture-max-mara-f.html](https://www.readybrides.com/en/envious-couture-dresses/86776-envious-couture-max-mara-f.html)
+Buy it: [https://www.antebrands.com/en/envious-couture-dresses/86776-envious-couture-max-mara-f.html](https://www.antebrands.com/en/envious-couture-dresses/86776-envious-couture-max-mara-f.html)

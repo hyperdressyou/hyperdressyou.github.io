@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$155.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/89099-shop-joielle-strapless-chiffon-knit-dress.html"><img src="//static.msromantic.com/232063/shop-joielle-strapless-chiffon-knit-dress.jpg" alt="Shop Joielle Strapless Chiffon Knit Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/89099-shop-joielle-strapless-chiffon-knit-dress.html"><img src="//static.msromantic.com/232063/shop-joielle-strapless-chiffon-knit-dress.jpg" alt="Shop Joielle Strapless Chiffon Knit Dress" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/89099-shop-joielle-strapless-chiffon-knit-dress.html"><img src="//static.msromantic.com/232062/shop-joielle-strapless-chiffon-knit-dress.jpg" alt="Shop Joielle Strapless Chiffon Knit Dress" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/89099-shop-joielle-strapless-chiffon-knit-dress.html](https://www.readybrides.com/en/shop-joielle-women/89099-shop-joielle-strapless-chiffon-knit-dress.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/89099-shop-joielle-strapless-chiffon-knit-dress.html"><img src="//static.msromantic.com/232062/shop-joielle-strapless-chiffon-knit-dress.jpg" alt="Shop Joielle Strapless Chiffon Knit Dress" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/89099-shop-joielle-strapless-chiffon-knit-dress.html](https://www.antebrands.com/en/shop-joielle-women/89099-shop-joielle-strapless-chiffon-knit-dress.html)

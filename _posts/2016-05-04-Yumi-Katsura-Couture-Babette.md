@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$429.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83963-yumi-katsura-couture-babette.html"><img src="//static.msromantic.com/215660/yumi-katsura-couture-babette.jpg" alt="Yumi Katsura Couture Babette" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83963-yumi-katsura-couture-babette.html"><img src="//static.msromantic.com/215660/yumi-katsura-couture-babette.jpg" alt="Yumi Katsura Couture Babette" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/yumi-katsura-couture/83963-yumi-katsura-couture-babette.html"><img src="//static.msromantic.com/215659/yumi-katsura-couture-babette.jpg" alt="Yumi Katsura Couture Babette" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83963-yumi-katsura-couture-babette.html](https://www.readybrides.com/en/yumi-katsura-couture/83963-yumi-katsura-couture-babette.html)
+<!-- break --><a href="https://www.antebrands.com/en/yumi-katsura-couture/83963-yumi-katsura-couture-babette.html"><img src="//static.msromantic.com/215659/yumi-katsura-couture-babette.jpg" alt="Yumi Katsura Couture Babette" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83963-yumi-katsura-couture-babette.html](https://www.antebrands.com/en/yumi-katsura-couture/83963-yumi-katsura-couture-babette.html)

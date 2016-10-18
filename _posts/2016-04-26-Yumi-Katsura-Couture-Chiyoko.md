@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$419.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83955-yumi-katsura-couture-chiyoko.html"><img src="//static.msromantic.com/215649/yumi-katsura-couture-chiyoko.jpg" alt="Yumi Katsura Couture Chiyoko" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83955-yumi-katsura-couture-chiyoko.html"><img src="//static.msromantic.com/215649/yumi-katsura-couture-chiyoko.jpg" alt="Yumi Katsura Couture Chiyoko" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/yumi-katsura-couture/83955-yumi-katsura-couture-chiyoko.html"><img src="//static.msromantic.com/215648/yumi-katsura-couture-chiyoko.jpg" alt="Yumi Katsura Couture Chiyoko" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83955-yumi-katsura-couture-chiyoko.html](https://www.readybrides.com/en/yumi-katsura-couture/83955-yumi-katsura-couture-chiyoko.html)
+<!-- break --><a href="https://www.antebrands.com/en/yumi-katsura-couture/83955-yumi-katsura-couture-chiyoko.html"><img src="//static.msromantic.com/215648/yumi-katsura-couture-chiyoko.jpg" alt="Yumi Katsura Couture Chiyoko" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83955-yumi-katsura-couture-chiyoko.html](https://www.antebrands.com/en/yumi-katsura-couture/83955-yumi-katsura-couture-chiyoko.html)

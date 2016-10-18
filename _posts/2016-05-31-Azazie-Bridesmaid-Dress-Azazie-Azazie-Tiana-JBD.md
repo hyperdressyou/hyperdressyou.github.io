@@ -9,8 +9,8 @@ tags: [Azazie Bridesmaid Dress]
 Just **$149.99**
 ### 
 
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88193-azazie-azazie-tiana-jbd.html"><img src="//static.msromantic.com/229695/azazie-azazie-tiana-jbd.jpg" alt="Azazie Azazie Tiana JBD" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88193-azazie-azazie-tiana-jbd.html"><img src="//static.msromantic.com/229695/azazie-azazie-tiana-jbd.jpg" alt="Azazie Azazie Tiana JBD" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88193-azazie-azazie-tiana-jbd.html"><img src="//static.msromantic.com/229696/azazie-azazie-tiana-jbd.jpg" alt="Azazie Azazie Tiana JBD" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88193-azazie-azazie-tiana-jbd.html"><img src="//static.msromantic.com/229694/azazie-azazie-tiana-jbd.jpg" alt="Azazie Azazie Tiana JBD" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/azazie-bridesmaid-dress/88193-azazie-azazie-tiana-jbd.html](https://www.readybrides.com/en/azazie-bridesmaid-dress/88193-azazie-azazie-tiana-jbd.html)
+<!-- break --><a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88193-azazie-azazie-tiana-jbd.html"><img src="//static.msromantic.com/229696/azazie-azazie-tiana-jbd.jpg" alt="Azazie Azazie Tiana JBD" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88193-azazie-azazie-tiana-jbd.html"><img src="//static.msromantic.com/229694/azazie-azazie-tiana-jbd.jpg" alt="Azazie Azazie Tiana JBD" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/azazie-bridesmaid-dress/88193-azazie-azazie-tiana-jbd.html](https://www.antebrands.com/en/azazie-bridesmaid-dress/88193-azazie-azazie-tiana-jbd.html)

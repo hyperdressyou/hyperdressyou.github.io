@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83984-yumi-katsura-couture-ardsley.html"><img src="//static.msromantic.com/215683/yumi-katsura-couture-ardsley.jpg" alt="Yumi Katsura Couture Ardsley" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83984-yumi-katsura-couture-ardsley.html"><img src="//static.msromantic.com/215683/yumi-katsura-couture-ardsley.jpg" alt="Yumi Katsura Couture Ardsley" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83984-yumi-katsura-couture-ardsley.html](https://www.readybrides.com/en/yumi-katsura-couture/83984-yumi-katsura-couture-ardsley.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83984-yumi-katsura-couture-ardsley.html](https://www.antebrands.com/en/yumi-katsura-couture/83984-yumi-katsura-couture-ardsley.html)

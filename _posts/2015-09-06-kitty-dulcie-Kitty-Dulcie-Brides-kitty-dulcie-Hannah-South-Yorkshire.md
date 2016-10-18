@@ -9,7 +9,7 @@ tags: [kitty & dulcie Kitty & Dulcie Brides]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87925-kitty-dulcie-hannah-south-yorkshire.html"><img src="//static.msromantic.com/228950/kitty-dulcie-hannah-south-yorkshire.jpg" alt="kitty & dulcie Hannah (South Yorkshire)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87925-kitty-dulcie-hannah-south-yorkshire.html"><img src="//static.msromantic.com/228950/kitty-dulcie-hannah-south-yorkshire.jpg" alt="kitty & dulcie Hannah (South Yorkshire)" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87925-kitty-dulcie-hannah-south-yorkshire.html](https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87925-kitty-dulcie-hannah-south-yorkshire.html)
+Buy it: [https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87925-kitty-dulcie-hannah-south-yorkshire.html](https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87925-kitty-dulcie-hannah-south-yorkshire.html)

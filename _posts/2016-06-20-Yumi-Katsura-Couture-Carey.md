@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/84010-yumi-katsura-couture-carey.html"><img src="//static.msromantic.com/215710/yumi-katsura-couture-carey.jpg" alt="Yumi Katsura Couture Carey" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/84010-yumi-katsura-couture-carey.html"><img src="//static.msromantic.com/215710/yumi-katsura-couture-carey.jpg" alt="Yumi Katsura Couture Carey" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/84010-yumi-katsura-couture-carey.html](https://www.readybrides.com/en/yumi-katsura-couture/84010-yumi-katsura-couture-carey.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/84010-yumi-katsura-couture-carey.html](https://www.antebrands.com/en/yumi-katsura-couture/84010-yumi-katsura-couture-carey.html)

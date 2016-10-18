@@ -9,8 +9,8 @@ tags: [Azazie Bridesmaid Dress]
 Just **$159.99**
 ### 
 
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88176-azazie-azazie-alejandra.html"><img src="//static.msromantic.com/229642/azazie-azazie-alejandra.jpg" alt="Azazie Azazie Alejandra" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88176-azazie-azazie-alejandra.html"><img src="//static.msromantic.com/229642/azazie-azazie-alejandra.jpg" alt="Azazie Azazie Alejandra" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88176-azazie-azazie-alejandra.html"><img src="//static.msromantic.com/229643/azazie-azazie-alejandra.jpg" alt="Azazie Azazie Alejandra" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/azazie-bridesmaid-dress/88176-azazie-azazie-alejandra.html"><img src="//static.msromantic.com/229641/azazie-azazie-alejandra.jpg" alt="Azazie Azazie Alejandra" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/azazie-bridesmaid-dress/88176-azazie-azazie-alejandra.html](https://www.readybrides.com/en/azazie-bridesmaid-dress/88176-azazie-azazie-alejandra.html)
+<!-- break --><a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88176-azazie-azazie-alejandra.html"><img src="//static.msromantic.com/229643/azazie-azazie-alejandra.jpg" alt="Azazie Azazie Alejandra" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/azazie-bridesmaid-dress/88176-azazie-azazie-alejandra.html"><img src="//static.msromantic.com/229641/azazie-azazie-alejandra.jpg" alt="Azazie Azazie Alejandra" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/azazie-bridesmaid-dress/88176-azazie-azazie-alejandra.html](https://www.antebrands.com/en/azazie-bridesmaid-dress/88176-azazie-azazie-alejandra.html)

@@ -9,7 +9,7 @@ tags: [Les Mariées de Provence]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/les-mariees-de-provence/85054-les-mariees-de-provence-diane.html"><img src="//static.msromantic.com/222954/les-mariees-de-provence-diane.jpg" alt="Les Mariées de Provence DIANE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/les-mariees-de-provence/85054-les-mariees-de-provence-diane.html"><img src="//static.msromantic.com/222954/les-mariees-de-provence-diane.jpg" alt="Les Mariées de Provence DIANE" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/les-mariees-de-provence/85054-les-mariees-de-provence-diane.html"><img src="//static.msromantic.com/222953/les-mariees-de-provence-diane.jpg" alt="Les Mariées de Provence DIANE" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/les-mariees-de-provence/85054-les-mariees-de-provence-diane.html](https://www.readybrides.com/en/les-mariees-de-provence/85054-les-mariees-de-provence-diane.html)
+<!-- break --><a href="https://www.antebrands.com/en/les-mariees-de-provence/85054-les-mariees-de-provence-diane.html"><img src="//static.msromantic.com/222953/les-mariees-de-provence-diane.jpg" alt="Les Mariées de Provence DIANE" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/les-mariees-de-provence/85054-les-mariees-de-provence-diane.html](https://www.antebrands.com/en/les-mariees-de-provence/85054-les-mariees-de-provence-diane.html)

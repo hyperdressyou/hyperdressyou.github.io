@@ -9,7 +9,7 @@ tags: [kitty & dulcie Kitty & Dulcie Brides]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87965-kitty-dulcie-nicola-cyprus.html"><img src="//static.msromantic.com/228990/kitty-dulcie-nicola-cyprus.jpg" alt="kitty & dulcie Nicola (Cyprus)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87965-kitty-dulcie-nicola-cyprus.html"><img src="//static.msromantic.com/228990/kitty-dulcie-nicola-cyprus.jpg" alt="kitty & dulcie Nicola (Cyprus)" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87965-kitty-dulcie-nicola-cyprus.html](https://www.readybrides.com/en/kitty-dulcie-kitty-dulcie-brides/87965-kitty-dulcie-nicola-cyprus.html)
+Buy it: [https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87965-kitty-dulcie-nicola-cyprus.html](https://www.antebrands.com/en/kitty-dulcie-kitty-dulcie-brides/87965-kitty-dulcie-nicola-cyprus.html)

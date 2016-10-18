@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83980-yumi-katsura-couture-amala.html"><img src="//static.msromantic.com/215679/yumi-katsura-couture-amala.jpg" alt="Yumi Katsura Couture Amala" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83980-yumi-katsura-couture-amala.html"><img src="//static.msromantic.com/215679/yumi-katsura-couture-amala.jpg" alt="Yumi Katsura Couture Amala" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83980-yumi-katsura-couture-amala.html](https://www.readybrides.com/en/yumi-katsura-couture/83980-yumi-katsura-couture-amala.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83980-yumi-katsura-couture-amala.html](https://www.antebrands.com/en/yumi-katsura-couture/83980-yumi-katsura-couture-amala.html)

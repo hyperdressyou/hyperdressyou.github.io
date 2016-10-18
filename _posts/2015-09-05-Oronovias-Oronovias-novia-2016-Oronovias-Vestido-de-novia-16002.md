@@ -9,7 +9,7 @@ tags: [Oronovias Oronovias novia 2016]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/oronovias-oronovias-novia-2016/85122-oronovias-vestido-de-novia-16002.html"><img src="//static.msromantic.com/223079/oronovias-vestido-de-novia-16002.jpg" alt="Oronovias Vestido de novia 16002" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/oronovias-oronovias-novia-2016/85122-oronovias-vestido-de-novia-16002.html"><img src="//static.msromantic.com/223079/oronovias-vestido-de-novia-16002.jpg" alt="Oronovias Vestido de novia 16002" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/oronovias-oronovias-novia-2016/85122-oronovias-vestido-de-novia-16002.html"><img src="//static.msromantic.com/223078/oronovias-vestido-de-novia-16002.jpg" alt="Oronovias Vestido de novia 16002" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/oronovias-oronovias-novia-2016/85122-oronovias-vestido-de-novia-16002.html](https://www.readybrides.com/en/oronovias-oronovias-novia-2016/85122-oronovias-vestido-de-novia-16002.html)
+<!-- break --><a href="https://www.antebrands.com/en/oronovias-oronovias-novia-2016/85122-oronovias-vestido-de-novia-16002.html"><img src="//static.msromantic.com/223078/oronovias-vestido-de-novia-16002.jpg" alt="Oronovias Vestido de novia 16002" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/oronovias-oronovias-novia-2016/85122-oronovias-vestido-de-novia-16002.html](https://www.antebrands.com/en/oronovias-oronovias-novia-2016/85122-oronovias-vestido-de-novia-16002.html)

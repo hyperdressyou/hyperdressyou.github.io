@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$469.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/83989-yumi-katsura-couture-aster-with-asa-bolero.html"><img src="//static.msromantic.com/215688/yumi-katsura-couture-aster-with-asa-bolero.jpg" alt="Yumi Katsura Couture Aster With Asa Bolero" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/83989-yumi-katsura-couture-aster-with-asa-bolero.html"><img src="//static.msromantic.com/215688/yumi-katsura-couture-aster-with-asa-bolero.jpg" alt="Yumi Katsura Couture Aster With Asa Bolero" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/83989-yumi-katsura-couture-aster-with-asa-bolero.html](https://www.readybrides.com/en/yumi-katsura-couture/83989-yumi-katsura-couture-aster-with-asa-bolero.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/83989-yumi-katsura-couture-aster-with-asa-bolero.html](https://www.antebrands.com/en/yumi-katsura-couture/83989-yumi-katsura-couture-aster-with-asa-bolero.html)

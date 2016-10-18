@@ -9,7 +9,7 @@ tags: [Yumi Katsura Couture]
 Just **$519.99**
 ### 
 
-<a href="https://www.readybrides.com/en/yumi-katsura-couture/84007-yumi-katsura-couture-aiko.html"><img src="//static.msromantic.com/215706/yumi-katsura-couture-aiko.jpg" alt="Yumi Katsura Couture Aiko" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/yumi-katsura-couture/84007-yumi-katsura-couture-aiko.html"><img src="//static.msromantic.com/215706/yumi-katsura-couture-aiko.jpg" alt="Yumi Katsura Couture Aiko" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/yumi-katsura-couture/84007-yumi-katsura-couture-aiko.html](https://www.readybrides.com/en/yumi-katsura-couture/84007-yumi-katsura-couture-aiko.html)
+Buy it: [https://www.antebrands.com/en/yumi-katsura-couture/84007-yumi-katsura-couture-aiko.html](https://www.antebrands.com/en/yumi-katsura-couture/84007-yumi-katsura-couture-aiko.html)

@@ -9,7 +9,7 @@ tags: [Shop Joielle WOMEN]
 Just **$224.00**
 ### 
 
-<a href="https://www.readybrides.com/en/shop-joielle-women/88792-shop-joielle-lr221.html"><img src="//static.msromantic.com/231453/shop-joielle-lr221.jpg" alt="Shop Joielle LR221" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/shop-joielle-women/88792-shop-joielle-lr221.html"><img src="//static.msromantic.com/231453/shop-joielle-lr221.jpg" alt="Shop Joielle LR221" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/shop-joielle-women/88792-shop-joielle-lr221.html"><img src="//static.msromantic.com/231452/shop-joielle-lr221.jpg" alt="Shop Joielle LR221" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/shop-joielle-women/88792-shop-joielle-lr221.html](https://www.readybrides.com/en/shop-joielle-women/88792-shop-joielle-lr221.html)
+<!-- break --><a href="https://www.antebrands.com/en/shop-joielle-women/88792-shop-joielle-lr221.html"><img src="//static.msromantic.com/231452/shop-joielle-lr221.jpg" alt="Shop Joielle LR221" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/shop-joielle-women/88792-shop-joielle-lr221.html](https://www.antebrands.com/en/shop-joielle-women/88792-shop-joielle-lr221.html)
