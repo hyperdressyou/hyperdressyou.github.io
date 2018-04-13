@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2018-02-08'
-title: "Tatiana Kaplun Милинда"
+date: 2018-02-08
+title: "Tatiana Kaplun Ангелина"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Милинда
+### Tatiana Kaplun Ангелина
 Just **$359.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90406-tatiana-kaplun-milinda.html"><img src="//img.readybrides.com/234937/tatiana-kaplun-milinda.jpg" alt="Tatiana Kaplun Милинда" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90251-tatiana-kaplun-angelina.html"><img src="//img.readybrides.com/234770/tatiana-kaplun-angelina.jpg" alt="Tatiana Kaplun Ангелина" style="width:100%;" /></a>
 
-<!-- break -->
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90406-tatiana-kaplun-milinda.html](https://www.readybrides.com/en/tatiana-kaplun/90406-tatiana-kaplun-milinda.html)
+<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun/90251-tatiana-kaplun-angelina.html"><img src="//img.readybrides.com/234769/tatiana-kaplun-angelina.jpg" alt="Tatiana Kaplun Ангелина" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90251-tatiana-kaplun-angelina.html](https://www.readybrides.com/en/tatiana-kaplun/90251-tatiana-kaplun-angelina.html)

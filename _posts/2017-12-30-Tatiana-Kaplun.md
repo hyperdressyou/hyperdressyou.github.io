@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2017-12-30'
-title: "Tatiana Kaplun Марьяж"
+date: 2017-12-30
+title: "Tatiana Kaplun Мирей"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Марьяж
-Just **$379.99**
+### Tatiana Kaplun Мирей
+Just **$369.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90366-tatiana-kaplun-maryazh.html"><img src="//img.readybrides.com/234894/tatiana-kaplun-maryazh.jpg" alt="Tatiana Kaplun Марьяж" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90368-tatiana-kaplun-mirej.html"><img src="//img.readybrides.com/234896/tatiana-kaplun-mirej.jpg" alt="Tatiana Kaplun Мирей" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90366-tatiana-kaplun-maryazh.html](https://www.readybrides.com/en/tatiana-kaplun/90366-tatiana-kaplun-maryazh.html)
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90368-tatiana-kaplun-mirej.html](https://www.readybrides.com/en/tatiana-kaplun/90368-tatiana-kaplun-mirej.html)

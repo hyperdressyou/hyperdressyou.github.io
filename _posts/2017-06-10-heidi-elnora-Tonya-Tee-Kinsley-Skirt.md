@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2017-06-10'
+date: 2017-06-10
 title: "heidi elnora Tonya Tee & Kinsley Skirt"
 category: heidi elnora
 tags: [heidi elnora]

@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-09-08'
+date: 2016-09-08
 title: "Shop Joielle LM224HB"
 category: Shop Joielle
 tags: [Shop Joielle]

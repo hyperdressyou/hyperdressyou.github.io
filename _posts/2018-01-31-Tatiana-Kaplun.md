@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2018-01-31'
-title: "Tatiana Kaplun Каролина"
+date: 2018-01-31
+title: "Tatiana Kaplun Мери-Лиз"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Каролина
-Just **$399.99**
+### Tatiana Kaplun Мери-Лиз
+Just **$369.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90398-tatiana-kaplun-karolina.html"><img src="//img.readybrides.com/234928/tatiana-kaplun-karolina.jpg" alt="Tatiana Kaplun Каролина" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90434-tatiana-kaplun-meri-liz.html"><img src="//img.readybrides.com/234969/tatiana-kaplun-meri-liz.jpg" alt="Tatiana Kaplun Мери-Лиз" style="width:100%;" /></a>
 
-<!-- break -->
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90398-tatiana-kaplun-karolina.html](https://www.readybrides.com/en/tatiana-kaplun/90398-tatiana-kaplun-karolina.html)
+<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun/90434-tatiana-kaplun-meri-liz.html"><img src="//img.readybrides.com/234968/tatiana-kaplun-meri-liz.jpg" alt="Tatiana Kaplun Мери-Лиз" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90434-tatiana-kaplun-meri-liz.html](https://www.readybrides.com/en/tatiana-kaplun/90434-tatiana-kaplun-meri-liz.html)

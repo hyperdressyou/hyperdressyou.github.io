@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2018-02-23'
-title: "Tatiana Kaplun Франческа"
+date: 2018-02-23
+title: "Tatiana Kaplun Флоренсия"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Франческа
-Just **$369.99**
+### Tatiana Kaplun Флоренсия
+Just **$379.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90421-tatiana-kaplun-francheska.html"><img src="//img.readybrides.com/234952/tatiana-kaplun-francheska.jpg" alt="Tatiana Kaplun Франческа" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90379-tatiana-kaplun-florensiya.html"><img src="//img.readybrides.com/234909/tatiana-kaplun-florensiya.jpg" alt="Tatiana Kaplun Флоренсия" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90421-tatiana-kaplun-francheska.html](https://www.readybrides.com/en/tatiana-kaplun/90421-tatiana-kaplun-francheska.html)
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90379-tatiana-kaplun-florensiya.html](https://www.readybrides.com/en/tatiana-kaplun/90379-tatiana-kaplun-florensiya.html)

@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2018-01-25'
+date: 2018-01-25
 title: "Azazie Mona BG Long Sleeves Court Train Aline/Princess"
 category: Azazie
 tags: [Azazie,Aline/Princess ,Bateau,Court Train,Long Sleeves]

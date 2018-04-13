@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-11-26'
+date: 2016-11-26
 title: "Karishma Creations Adagio Bridesmaid Style BM119"
 category: Karishma Creations
 tags: [Karishma Creations]

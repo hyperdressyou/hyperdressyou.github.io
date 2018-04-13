@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2018-01-25'
-title: "Tatiana Kaplun Вивьен"
+date: 2018-01-25
+title: "Tatiana Kaplun Медея"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Вивьен
+### Tatiana Kaplun Медея
 Just **$349.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90392-tatiana-kaplun-viven.html"><img src="//img.readybrides.com/234922/tatiana-kaplun-viven.jpg" alt="Tatiana Kaplun Вивьен" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90168-tatiana-kaplun-medeya.html"><img src="//img.readybrides.com/234629/tatiana-kaplun-medeya.jpg" alt="Tatiana Kaplun Медея" style="width:100%;" /></a>
 
-<!-- break -->
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90392-tatiana-kaplun-viven.html](https://www.readybrides.com/en/tatiana-kaplun/90392-tatiana-kaplun-viven.html)
+<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun/90168-tatiana-kaplun-medeya.html"><img src="//img.readybrides.com/234628/tatiana-kaplun-medeya.jpg" alt="Tatiana Kaplun Медея" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90168-tatiana-kaplun-medeya.html](https://www.readybrides.com/en/tatiana-kaplun/90168-tatiana-kaplun-medeya.html)

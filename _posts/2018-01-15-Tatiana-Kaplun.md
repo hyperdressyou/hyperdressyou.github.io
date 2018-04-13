@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2018-01-15'
+date: 2018-01-15
 title: "Tatiana Kaplun Шарлотта"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]

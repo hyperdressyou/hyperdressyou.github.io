@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2017-08-01'
-title: "Tatiana Kaplun Лаурита"
+date: 2017-08-01
+title: "Tatiana Kaplun Селеста"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Лаурита
-Just **$419.99**
+### Tatiana Kaplun Селеста
+Just **$409.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90215-tatiana-kaplun-laurita.html"><img src="//img.readybrides.com/234711/tatiana-kaplun-laurita.jpg" alt="Tatiana Kaplun Лаурита" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90374-tatiana-kaplun-selesta.html"><img src="//img.readybrides.com/234904/tatiana-kaplun-selesta.jpg" alt="Tatiana Kaplun Селеста" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun/90215-tatiana-kaplun-laurita.html"><img src="//img.readybrides.com/234710/tatiana-kaplun-laurita.jpg" alt="Tatiana Kaplun Лаурита" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90215-tatiana-kaplun-laurita.html](https://www.readybrides.com/en/tatiana-kaplun/90215-tatiana-kaplun-laurita.html)
+<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun/90374-tatiana-kaplun-selesta.html"><img src="//img.readybrides.com/234903/tatiana-kaplun-selesta.jpg" alt="Tatiana Kaplun Селеста" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90374-tatiana-kaplun-selesta.html](https://www.readybrides.com/en/tatiana-kaplun/90374-tatiana-kaplun-selesta.html)

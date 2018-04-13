@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2017-06-06'
-title: "Tatiana Kaplun Крисс"
+date: 2017-06-06
+title: "Tatiana Kaplun Дарси"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Крисс
-Just **$389.99**
+### Tatiana Kaplun Дарси
+Just **$399.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90159-tatiana-kaplun-kriss.html"><img src="//img.readybrides.com/234612/tatiana-kaplun-kriss.jpg" alt="Tatiana Kaplun Крисс" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90441-tatiana-kaplun-darsi.html"><img src="//img.readybrides.com/234976/tatiana-kaplun-darsi.jpg" alt="Tatiana Kaplun Дарси" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun/90159-tatiana-kaplun-kriss.html"><img src="//img.readybrides.com/234611/tatiana-kaplun-kriss.jpg" alt="Tatiana Kaplun Крисс" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90159-tatiana-kaplun-kriss.html](https://www.readybrides.com/en/tatiana-kaplun/90159-tatiana-kaplun-kriss.html)
+<!-- break -->
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90441-tatiana-kaplun-darsi.html](https://www.readybrides.com/en/tatiana-kaplun/90441-tatiana-kaplun-darsi.html)

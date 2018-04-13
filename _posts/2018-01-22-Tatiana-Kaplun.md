@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2018-01-22'
-title: "Tatiana Kaplun Аннет"
+date: 2018-01-22
+title: "Tatiana Kaplun Жоржетта"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Аннет
-Just **$369.99**
+### Tatiana Kaplun Жоржетта
+Just **$359.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90389-tatiana-kaplun-annet.html"><img src="//img.readybrides.com/234919/tatiana-kaplun-annet.jpg" alt="Tatiana Kaplun Аннет" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90154-tatiana-kaplun-zhorzhetta.html"><img src="//img.readybrides.com/234600/tatiana-kaplun-zhorzhetta.jpg" alt="Tatiana Kaplun Жоржетта" style="width:100%;" /></a>
 
-<!-- break -->
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90389-tatiana-kaplun-annet.html](https://www.readybrides.com/en/tatiana-kaplun/90389-tatiana-kaplun-annet.html)
+<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun/90154-tatiana-kaplun-zhorzhetta.html"><img src="//img.readybrides.com/234599/tatiana-kaplun-zhorzhetta.jpg" alt="Tatiana Kaplun Жоржетта" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90154-tatiana-kaplun-zhorzhetta.html](https://www.readybrides.com/en/tatiana-kaplun/90154-tatiana-kaplun-zhorzhetta.html)

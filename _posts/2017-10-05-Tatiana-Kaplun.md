@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2017-10-05'
-title: "Tatiana Kaplun Нора"
+date: 2017-10-05
+title: "Tatiana Kaplun Дениз"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Нора
-Just **$399.99**
+### Tatiana Kaplun Дениз
+Just **$379.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90280-tatiana-kaplun-nora.html"><img src="//img.readybrides.com/234799/tatiana-kaplun-nora.jpg" alt="Tatiana Kaplun Нора" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90351-tatiana-kaplun-deniz.html"><img src="//img.readybrides.com/234878/tatiana-kaplun-deniz.jpg" alt="Tatiana Kaplun Дениз" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90280-tatiana-kaplun-nora.html](https://www.readybrides.com/en/tatiana-kaplun/90280-tatiana-kaplun-nora.html)
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90351-tatiana-kaplun-deniz.html](https://www.readybrides.com/en/tatiana-kaplun/90351-tatiana-kaplun-deniz.html)

@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-10-24'
+date: 2016-10-24
 title: "Mariasalas Novias vestido de comunión 6113"
 category: Mariasalas Novias
 tags: [Mariasalas Novias]

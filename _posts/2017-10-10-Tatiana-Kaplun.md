@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2017-10-10'
-title: "Tatiana Kaplun Пэгги"
+date: 2017-10-10
+title: "Tatiana Kaplun Нинель"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Пэгги
-Just **$369.99**
+### Tatiana Kaplun Нинель
+Just **$359.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90285-tatiana-kaplun-peggi.html"><img src="//img.readybrides.com/234804/tatiana-kaplun-peggi.jpg" alt="Tatiana Kaplun Пэгги" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90409-tatiana-kaplun-ninel.html"><img src="//img.readybrides.com/234940/tatiana-kaplun-ninel.jpg" alt="Tatiana Kaplun Нинель" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90285-tatiana-kaplun-peggi.html](https://www.readybrides.com/en/tatiana-kaplun/90285-tatiana-kaplun-peggi.html)
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90409-tatiana-kaplun-ninel.html](https://www.readybrides.com/en/tatiana-kaplun/90409-tatiana-kaplun-ninel.html)

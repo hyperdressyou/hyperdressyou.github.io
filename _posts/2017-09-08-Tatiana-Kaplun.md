@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2017-09-08'
-title: "Tatiana Kaplun Беатриче"
+date: 2017-09-08
+title: "Tatiana Kaplun Ульяна"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Беатриче
-Just **$369.99**
+### Tatiana Kaplun Ульяна
+Just **$399.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90253-tatiana-kaplun-beatriche.html"><img src="//img.readybrides.com/234772/tatiana-kaplun-beatriche.jpg" alt="Tatiana Kaplun Беатриче" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90416-tatiana-kaplun-ulyana.html"><img src="//img.readybrides.com/234947/tatiana-kaplun-ulyana.jpg" alt="Tatiana Kaplun Ульяна" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90253-tatiana-kaplun-beatriche.html](https://www.readybrides.com/en/tatiana-kaplun/90253-tatiana-kaplun-beatriche.html)
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90416-tatiana-kaplun-ulyana.html](https://www.readybrides.com/en/tatiana-kaplun/90416-tatiana-kaplun-ulyana.html)

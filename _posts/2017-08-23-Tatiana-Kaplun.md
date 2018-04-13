@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2017-08-23'
-title: "Tatiana Kaplun Тифани"
+date: 2017-08-23
+title: "Tatiana Kaplun Фрида"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Тифани
-Just **$399.99**
+### Tatiana Kaplun Фрида
+Just **$419.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90237-tatiana-kaplun-tifani.html"><img src="//img.readybrides.com/234747/tatiana-kaplun-tifani.jpg" alt="Tatiana Kaplun Тифани" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90437-tatiana-kaplun-frida.html"><img src="//img.readybrides.com/234972/tatiana-kaplun-frida.jpg" alt="Tatiana Kaplun Фрида" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun/90237-tatiana-kaplun-tifani.html"><img src="//img.readybrides.com/234746/tatiana-kaplun-tifani.jpg" alt="Tatiana Kaplun Тифани" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90237-tatiana-kaplun-tifani.html](https://www.readybrides.com/en/tatiana-kaplun/90237-tatiana-kaplun-tifani.html)
+<!-- break -->
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90437-tatiana-kaplun-frida.html](https://www.readybrides.com/en/tatiana-kaplun/90437-tatiana-kaplun-frida.html)

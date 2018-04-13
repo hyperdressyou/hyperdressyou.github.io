@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2017-06-27'
-title: "Tatiana Kaplun Тави"
+date: 2017-06-27
+title: "Tatiana Kaplun Лаурель"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Тави
-Just **$409.99**
+### Tatiana Kaplun Лаурель
+Just **$359.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90180-tatiana-kaplun-tavi.html"><img src="//img.readybrides.com/234652/tatiana-kaplun-tavi.jpg" alt="Tatiana Kaplun Тави" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90400-tatiana-kaplun-laurel.html"><img src="//img.readybrides.com/234931/tatiana-kaplun-laurel.jpg" alt="Tatiana Kaplun Лаурель" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun/90180-tatiana-kaplun-tavi.html"><img src="//img.readybrides.com/234651/tatiana-kaplun-tavi.jpg" alt="Tatiana Kaplun Тави" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90180-tatiana-kaplun-tavi.html](https://www.readybrides.com/en/tatiana-kaplun/90180-tatiana-kaplun-tavi.html)
+<!-- break -->
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90400-tatiana-kaplun-laurel.html](https://www.readybrides.com/en/tatiana-kaplun/90400-tatiana-kaplun-laurel.html)

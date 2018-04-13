@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2017-10-21'
-title: "Tatiana Kaplun Шерон"
+date: 2017-10-21
+title: "Tatiana Kaplun Афродита"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Шерон
-Just **$379.99**
+### Tatiana Kaplun Афродита
+Just **$389.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90296-tatiana-kaplun-sheron.html"><img src="//img.readybrides.com/234816/tatiana-kaplun-sheron.jpg" alt="Tatiana Kaplun Шерон" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90148-tatiana-kaplun-afrodita.html"><img src="//img.readybrides.com/234591/tatiana-kaplun-afrodita.jpg" alt="Tatiana Kaplun Афродита" style="width:100%;" /></a>
 
-<!-- break -->
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90296-tatiana-kaplun-sheron.html](https://www.readybrides.com/en/tatiana-kaplun/90296-tatiana-kaplun-sheron.html)
+<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun/90148-tatiana-kaplun-afrodita.html"><img src="//img.readybrides.com/234590/tatiana-kaplun-afrodita.jpg" alt="Tatiana Kaplun Афродита" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90148-tatiana-kaplun-afrodita.html](https://www.readybrides.com/en/tatiana-kaplun/90148-tatiana-kaplun-afrodita.html)

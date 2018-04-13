@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2017-12-08'
-title: "Tatiana Kaplun Айрис"
+date: 2017-12-08
+title: "Tatiana Kaplun Сильви"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Айрис
-Just **$349.99**
+### Tatiana Kaplun Сильви
+Just **$359.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90344-tatiana-kaplun-ajris.html"><img src="//img.readybrides.com/234870/tatiana-kaplun-ajris.jpg" alt="Tatiana Kaplun Айрис" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90375-tatiana-kaplun-silvi.html"><img src="//img.readybrides.com/234905/tatiana-kaplun-silvi.jpg" alt="Tatiana Kaplun Сильви" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90344-tatiana-kaplun-ajris.html](https://www.readybrides.com/en/tatiana-kaplun/90344-tatiana-kaplun-ajris.html)
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90375-tatiana-kaplun-silvi.html](https://www.readybrides.com/en/tatiana-kaplun/90375-tatiana-kaplun-silvi.html)

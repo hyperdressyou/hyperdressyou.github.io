@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2017-07-15'
-title: "Tatiana Kaplun Вэнна"
+date: 2017-07-15
+title: "Tatiana Kaplun Розалин"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Вэнна
+### Tatiana Kaplun Розалин
 Just **$399.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90198-tatiana-kaplun-venna.html"><img src="//img.readybrides.com/234685/tatiana-kaplun-venna.jpg" alt="Tatiana Kaplun Вэнна" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90488-tatiana-kaplun-rozalin.html"><img src="//img.readybrides.com/235035/tatiana-kaplun-rozalin.jpg" alt="Tatiana Kaplun Розалин" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun/90198-tatiana-kaplun-venna.html"><img src="//img.readybrides.com/234684/tatiana-kaplun-venna.jpg" alt="Tatiana Kaplun Вэнна" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90198-tatiana-kaplun-venna.html](https://www.readybrides.com/en/tatiana-kaplun/90198-tatiana-kaplun-venna.html)
+<!-- break -->
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90488-tatiana-kaplun-rozalin.html](https://www.readybrides.com/en/tatiana-kaplun/90488-tatiana-kaplun-rozalin.html)

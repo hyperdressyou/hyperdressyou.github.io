@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2018-02-19'
-title: "Tatiana Kaplun Флавия"
+date: 2018-02-19
+title: "Tatiana Kaplun Бланш"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Флавия
-Just **$359.99**
+### Tatiana Kaplun Бланш
+Just **$379.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90417-tatiana-kaplun-flaviya.html"><img src="//img.readybrides.com/234948/tatiana-kaplun-flaviya.jpg" alt="Tatiana Kaplun Флавия" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90348-tatiana-kaplun-blansh.html"><img src="//img.readybrides.com/234874/tatiana-kaplun-blansh.jpg" alt="Tatiana Kaplun Бланш" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90417-tatiana-kaplun-flaviya.html](https://www.readybrides.com/en/tatiana-kaplun/90417-tatiana-kaplun-flaviya.html)
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90348-tatiana-kaplun-blansh.html](https://www.readybrides.com/en/tatiana-kaplun/90348-tatiana-kaplun-blansh.html)

@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2017-03-19'
-title: "Tatiana Kaplun Лоредена"
+date: 2017-03-19
+title: "Tatiana Kaplun Консуэлла"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Лоредена
-Just **$349.99**
+### Tatiana Kaplun Консуэлла
+Just **$389.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90080-tatiana-kaplun-loredena.html"><img src="//img.readybrides.com/234448/tatiana-kaplun-loredena.jpg" alt="Tatiana Kaplun Лоредена" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90213-tatiana-kaplun-konsuella.html"><img src="//img.readybrides.com/234708/tatiana-kaplun-konsuella.jpg" alt="Tatiana Kaplun Консуэлла" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun/90080-tatiana-kaplun-loredena.html"><img src="//img.readybrides.com/234447/tatiana-kaplun-loredena.jpg" alt="Tatiana Kaplun Лоредена" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90080-tatiana-kaplun-loredena.html](https://www.readybrides.com/en/tatiana-kaplun/90080-tatiana-kaplun-loredena.html)
+<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun/90213-tatiana-kaplun-konsuella.html"><img src="//img.readybrides.com/234707/tatiana-kaplun-konsuella.jpg" alt="Tatiana Kaplun Консуэлла" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90213-tatiana-kaplun-konsuella.html](https://www.readybrides.com/en/tatiana-kaplun/90213-tatiana-kaplun-konsuella.html)

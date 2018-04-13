@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2017-09-09'
-title: "Tatiana Kaplun Бруклин"
+date: 2017-09-09
+title: "Tatiana Kaplun Юстина"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Бруклин
-Just **$409.99**
+### Tatiana Kaplun Юстина
+Just **$379.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90254-tatiana-kaplun-bruklin.html"><img src="//img.readybrides.com/234773/tatiana-kaplun-bruklin.jpg" alt="Tatiana Kaplun Бруклин" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90245-tatiana-kaplun-yustina.html"><img src="//img.readybrides.com/234761/tatiana-kaplun-yustina.jpg" alt="Tatiana Kaplun Юстина" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90254-tatiana-kaplun-bruklin.html](https://www.readybrides.com/en/tatiana-kaplun/90254-tatiana-kaplun-bruklin.html)
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90245-tatiana-kaplun-yustina.html](https://www.readybrides.com/en/tatiana-kaplun/90245-tatiana-kaplun-yustina.html)

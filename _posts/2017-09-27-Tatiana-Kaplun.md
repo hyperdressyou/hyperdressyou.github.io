@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2017-09-27'
-title: "Tatiana Kaplun Люси"
+date: 2017-09-27
+title: "Tatiana Kaplun Мери-Эн"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Люси
-Just **$389.99**
+### Tatiana Kaplun Мери-Эн
+Just **$359.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90272-tatiana-kaplun-lyusi.html"><img src="//img.readybrides.com/234791/tatiana-kaplun-lyusi.jpg" alt="Tatiana Kaplun Люси" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90484-tatiana-kaplun-meri-en.html"><img src="//img.readybrides.com/235031/tatiana-kaplun-meri-en.jpg" alt="Tatiana Kaplun Мери-Эн" style="width:100%;" /></a>
 
-<!-- break -->
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90272-tatiana-kaplun-lyusi.html](https://www.readybrides.com/en/tatiana-kaplun/90272-tatiana-kaplun-lyusi.html)
+<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun/90484-tatiana-kaplun-meri-en.html"><img src="//img.readybrides.com/235030/tatiana-kaplun-meri-en.jpg" alt="Tatiana Kaplun Мери-Эн" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90484-tatiana-kaplun-meri-en.html](https://www.readybrides.com/en/tatiana-kaplun/90484-tatiana-kaplun-meri-en.html)

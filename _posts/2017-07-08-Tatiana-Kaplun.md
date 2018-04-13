@@ -1,15 +1,15 @@
 ---
 layout: post
-date: '2017-07-08'
-title: "Tatiana Kaplun Анна"
+date: 2017-07-08
+title: "Tatiana Kaplun Наоми"
 category: Tatiana Kaplun
 tags: [Tatiana Kaplun]
 ---
-### Tatiana Kaplun Анна
-Just **$359.99**
+### Tatiana Kaplun Наоми
+Just **$409.99**
 ###      
 <table><tr><td>BRANDS</td><td>Tatiana Kaplun</td></tr></table>
-<a href="https://www.readybrides.com/en/tatiana-kaplun/90191-tatiana-kaplun-anna.html"><img src="//img.readybrides.com/234670/tatiana-kaplun-anna.jpg" alt="Tatiana Kaplun Анна" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/tatiana-kaplun/90461-tatiana-kaplun-naomi.html"><img src="//img.readybrides.com/234999/tatiana-kaplun-naomi.jpg" alt="Tatiana Kaplun Наоми" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/tatiana-kaplun/90191-tatiana-kaplun-anna.html"><img src="//img.readybrides.com/234669/tatiana-kaplun-anna.jpg" alt="Tatiana Kaplun Анна" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90191-tatiana-kaplun-anna.html](https://www.readybrides.com/en/tatiana-kaplun/90191-tatiana-kaplun-anna.html)
+<!-- break -->
+Buy it: [https://www.readybrides.com/en/tatiana-kaplun/90461-tatiana-kaplun-naomi.html](https://www.readybrides.com/en/tatiana-kaplun/90461-tatiana-kaplun-naomi.html)
